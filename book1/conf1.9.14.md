@@ -12,7 +12,7 @@
 
 因为这确实被我们祖辈称赞，而许多人在我们生命之前就已经历这同样的过程，为我们造就愁苦的道路，而我们被迫在其上游旅，倍添亚当子孙们的苦劳和痛楚[^1]。
 
-[^1] [创3:16](https://biblehub.com/genesis/3-16.htm) 对那女人祂说：“我会使你在分娩中的痛苦非常剧烈；你会在痛苦中诞生下儿女。你的渴望会是为你的丈夫，而他会辖制你。” [17](https://biblehub.com/genesis/3-17.htm) 对亚当祂说：“因为你听从了你的妻子而吃了那树上的果实，而关于它我命令你，‘你一定不能以它为食’“地面因你而被咒诅；你在你生命的所有日子借着痛苦的劬劳才会从它吃食。
+[^1]: [创3:16](https://biblehub.com/genesis/3-16.htm) 对那女人祂说：“我会使你在分娩中的痛苦非常剧烈；你会在痛苦中诞生下儿女。你的渴望会是为你的丈夫，而他会辖制你。” [17](https://biblehub.com/genesis/3-17.htm) 对亚当祂说：“因为你听从了你的妻子而吃了那树上的果实，而关于它我命令你，‘你一定不能以它为食’“地面因你而被咒诅；你在你生命的所有日子借着痛苦的劬劳才会从它吃食。
 
 > invenimus autem, domine, homines rogantes te et didicimus ab eis, sentientes te, ut poteramus, esse magnum aliquem qui posses etiam non apparens sensibus nostris exaudire nos et subvenire nobis.
 
@@ -22,7 +22,7 @@
 
 于是我在小时候就开始向祢---我的帮助和我的避难所[^2]祷告，并在求靠祢中打破了我的舌枷。而我虽小，却以不小的诚挚向祢祷告以免我在学校被鞭笞。
 
-[^2] [诗94:22](https://biblehub.com/psalms/94-22.htm) 但耶和华已成为我的城堡，而我的上帝是我避难的岩石。
+[^2]: [诗94:22](https://biblehub.com/psalms/94-22.htm) 但耶和华已成为我的城堡，而我的上帝是我避难的岩石。
 
 > et cum me non exaudiebas, quod non erat ad insipientiam mihi, ridebantur a maioribus hominibus usque ab ipsis parentibus, qui mihi accidere mali nihil volebant, plagae meae, magnum tunc et grave malum meum.
 
