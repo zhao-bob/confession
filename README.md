@@ -6,4 +6,4 @@
 
 ## 第一卷
 
-### [第一章 1\.1\.1](https://zhao-bob.github.io/confession/book1/conf1.1.1)
+### [第一章 1. 1. 1](https://zhao-bob.github.io/confession/book1/conf1.1.1)
