@@ -1,3 +1,5 @@
 remote_theme: pages-themes/architect@v0.2.0
 plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
+title: 圣.奥古斯丁忏悔录
+description: 此翻译基于网上拉丁版https://faculty.georgetown.edu/jod/conf/text1.html，结合多种英译版本，并给出其经文（新教）注解。
