@@ -14,7 +14,7 @@
 
 ### [第二章 1. 2. 2](https://zhao-bob.github.io/confession/book1/conf1.2.2)
 
-### [第三章 1. 3. 3](https://zhao-bob.github.io/confession/book1/conf1.3.3) 待补充
+### [第三章 1. 3. 3](https://zhao-bob.github.io/confession/book1/conf1.3.3)
 
 ### [第四章 1. 4. 4](https://zhao-bob.github.io/confession/book1/conf1.4.4) 待补充
 
