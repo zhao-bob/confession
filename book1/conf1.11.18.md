@@ -10,4 +10,8 @@
 
 > et tamen in salute corporis non dicimus: `sine vulneretur amplius: nondum enim sanatus est.'
 
-事关身体健康上，没有人说：“随便他吧；让他负更重的伤；因为他还未痊愈”！
+但在事关身体健康上，没有人说：“随他负更重的伤，因为他还未痊愈”！
+
+> quanto ergo melius et cito sanarer et id ageretur mecum meorum meaque diligentia, ut recepta salus animae meae tuta esset tutela tua, qui dedisses eam. melius vero.
+
+于是，假使我立即痊愈该有多好---而假使此后，借着朋友和我自身的勤勉护理，我灵魂恢复的健康就已在祢的保管中被保持平安，而原先祢就将此赐予！实话说，这原本会好很多。
