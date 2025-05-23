@@ -1,6 +1,6 @@
 # 第五卷 1. 5. 5
 
-> qquis mihi dabit adquiescere in te? quis dabit mihi ut venias in cor meum et inebries illud, ut obliviscar mala mea et unum bonum meum amplectar, te?
+> quis mihi dabit adquiescere in te? quis dabit mihi ut venias in cor meum et inebries illud, ut obliviscar mala mea et unum bonum meum amplectar, te?
 
 谁会准予我在祢里面安息呢[^1]？谁会准予我以使祢进入我的心并使它陶醉[^2]，以致我会遗忘我的罪邪而能拥抱祢[^3]，我惟一的良人[^4]？
 
