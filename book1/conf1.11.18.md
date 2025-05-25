@@ -14,4 +14,10 @@
 
 > quanto ergo melius et cito sanarer et id ageretur mecum meorum meaque diligentia, ut recepta salus animae meae tuta esset tutela tua, qui dedisses eam. melius vero.
 
-于是，假使我立即痊愈该有多好---而假使此后，借着朋友和我自身的勤勉护理，我灵魂恢复的健康就已在祢的保管中被保持平安，而原先祢就将此赐予！实话说，这原本会好很多。
+那么，假使我立即被治愈该有多好---而假使此后，借着我的家人和我自身的殷勤看护，我灵魂领受的拯救[^1]就已在祢的守护中被保持平安，而这是祢原先就已赐予的！实话说，这会好很多。
+
+[^1]: [诗35:3](https://biblehub.com/psalms/35-3.htm) 对那些追捕我的人挥舞长矛和标枪。对我的灵魂说：“我是你的拯救。”
+
+> sed quot et quanti fluctus impendere temptationum post pueritiam videbantur, noverat eos iam illa mater et terram per eos, unde postea formarer, quam ipsam iam effigiem committere volebat.
+
+但是，随着我从童年长大，似乎要笼罩我的诱惑浪潮是多么多而巨大！这些被我母亲预见到，而她优选让那未塑形的粘土向它们冒险，而不是让粘土先照基督的形象成型。

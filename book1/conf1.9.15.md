@@ -2,7 +2,7 @@
 
 > estne quisquam, domine, tam magnus animus, praegrandi affectu tibi cohaerens, estne, inquam, quisquam (facit enim hoc quaedam etiam stoliditas: est ergo), qui tibi pie cohaerendo ita sit affectus granditer, ut eculeos et ungulas atque huiuscemodi varia tormenta (pro quibus effugiendis tibi per universas terras cum timore magno supplicatur) ita parvi aestimet, diligens eos qui haec acerbissime formidant, quemadmodum parentes nostri ridebant tormenta quibus pueri a magistris affligebamur?
 
-主啊，是否有任何人有如此伟大的灵魂，他以强烈的感情忠坚于祢---我是说，是否有任何人（因为确实以某种程度的愚钝也达到此），被赋予如此伟大的感情虔诚地忠坚于祢，以致他漠然对待那些邢架、铁钩和这些形式的各样刑具，而遍及全地的人们都以极大的恐惧恳求祢以逃脱它们；而他们爱那些极其畏惧这些的人，正如我们的父母对我们的老师使我们这些男孩受苦的折磨发笑那样？
+主啊，是否有任何人有如此伟大的灵魂，他以强烈的感情忠坚于祢---我是说，是否有任何人（因为确实以某种程度的愚钝也达到此），被赋予如此伟大的感情虔诚地忠坚于祢，以致他漠然对待那些邢架、铁钩和这些形式的各样刑具，而遍及全地的人们都以极大的恐惧恳求祢以逃脱它们；而他爱那些极其畏惧这些的人，正如我们的父母对我们的老师使我们这些男孩受苦的折磨发笑那样？
 
 > non enim aut minus ea metuebamus aut minus te de his evadendis deprecabamur, et peccabamus tamen minus scribendo aut legendo aut cogitando de litteris quam exigebatur a nobis.
 
@@ -10,7 +10,7 @@
 
 > non enim deerat, domine, memoria vel ingenium, quae nos habere voluisti pro illa aetate satis, sed delectabat ludere et vindicabatur in nos ab eis qui talia utique agebant.
 
-主啊，我们在记忆力或智力上并不缺乏，，因为是祢的意志，使我们具备了对我们的年龄所足够的，可我们的心智却以玩耍为乐，并且我们为此被那些在做同样事情的人惩罚。
+主啊，我们在记忆力或智力上并不缺乏，因为是祢的意志，使我们具备了对我们的年龄所足够的，可我们的心智却以玩耍为乐，并且我们为此被那些在做同样事情的人惩罚。
 
 > sed maiorum nugae negotia vocantur, puerorum autem talia cum sint, puniuntur a maioribus, et nemo miseratur pueros vel illos vel utrosque.
 
