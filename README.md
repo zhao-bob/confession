@@ -20,8 +20,8 @@
 
 ### [第五章 1. 5. 5](https://zhao-bob.github.io/confession/book1/conf1.5.5)、[1. 5. 6](https://zhao-bob.github.io/confession/book1/conf1.5.6)
 
-### [第六章 1. 6. 7](https://zhao-bob.github.io/confession/book1/conf1.6.7)、1. 6. 8、1. 6. 9、1. 6. 10 待补充
-<!-- [1. 6. 8](https://zhao-bob.github.io/confession/book1/conf1.6.8)、[1. 6. 9](https://zhao-bob.github.io/confession/book1/conf1.6.9)、[1. 6. 10](https://zhao-bob.github.io/confession/book1/conf1.6.10) 待补充 -->
+### [第六章 1. 6. 7](https://zhao-bob.github.io/confession/book1/conf1.6.7)、[1. 6. 8](https://zhao-bob.github.io/confession/book1/conf1.6.8)、1. 6. 9、1. 6. 10 待补充
+<!-- [1. 6. 9](https://zhao-bob.github.io/confession/book1/conf1.6.9)、[1. 6. 10](https://zhao-bob.github.io/confession/book1/conf1.6.10) 待补充 -->
 
 ### [第七章 1. 7. 11](https://zhao-bob.github.io/confession/book1/conf1.7.11)、[1. 7. 12](https://zhao-bob.github.io/confession/book1/conf1.7.12) 待补充
 
