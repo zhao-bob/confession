@@ -1,4 +1,4 @@
-# 第一卷 1. 11. 18
+# 第十一卷 1. 11. 18
 
 > rogo te, deus meus: vellem scire, si tu etiam velles, quo consilio dilatus sum ne tunc baptizarer, utrum bono meo mihi quasi laxata sint lora peccandi.
 
@@ -20,4 +20,7 @@
 
 > sed quot et quanti fluctus impendere temptationum post pueritiam videbantur, noverat eos iam illa mater et terram per eos, unde postea formarer, quam ipsam iam effigiem committere volebat.
 
-但是，随着我从童年长大，似乎要笼罩我的诱惑浪潮是多么多而巨大！这些被我母亲预见到，而她优选让那未塑形的粘土向它们冒险，而不是让粘土先照基督的形象成型。
+但在我童年之后，似乎要笼罩我的诱惑浪潮是多么多而巨大！这些被我母亲预见到，而她愿意让泥土[^2]在历经它们之后被塑形，而不是将这泥土托付给它自身的形象[^3]。
+
+[^2]: [创1:2](https://biblehub.com/genesis/1-2.htm) 现在地是混沌空虚的，黑暗在深渊的表面之上，而上帝的灵在诸水上盘旋着。 [创2:7](https://biblehub.com/genesis/2-7.htm) 于是耶和华上帝用地面的尘土塑造了一个人，并将生命的气息吹进他的鼻孔，而这人就变成了一个活的存有。
+[^3]: [可16:12](https://biblehub.com/mark/16-12.htm) 之后在他们中的两个正走入乡村时，耶稣向他们以一种不同的形态显现。
