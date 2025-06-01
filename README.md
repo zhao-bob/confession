@@ -22,9 +22,11 @@
 
 ### [第六章 1. 6. 7](https://zhao-bob.github.io/confession/book1/conf1.6.7)、[1. 6. 8](https://zhao-bob.github.io/confession/book1/conf1.6.8)、[1. 6. 9](https://zhao-bob.github.io/confession/book1/conf1.6.9)、[1. 6. 10](https://zhao-bob.github.io/confession/book1/conf1.6.10)
 
-### [第七章 1. 7. 11](https://zhao-bob.github.io/confession/book1/conf1.7.11)、[1. 7. 12](https://zhao-bob.github.io/confession/book1/conf1.7.12) 待补充
+### [第七章 1. 7. 11](https://zhao-bob.github.io/confession/book1/conf1.7.11)、1. 7. 12 待补充
+<!-- 、[1. 7. 12](https://zhao-bob.github.io/confession/book1/conf1.7.12) 待补充 -->
 
-### [第八章 1. 8. 13](https://zhao-bob.github.io/confession/book1/conf1.8.13) 待补充
+### 第八章 1. 8. 13 待补充
+<!--[第八章 1. 8. 13] (https://zhao-bob.github.io/confession/book1/conf1.8.13)  -->
 
 ### [第九章 1. 9. 14](https://zhao-bob.github.io/confession/book1/conf1.9.14)、[1. 9. 15](https://zhao-bob.github.io/confession/book1/conf1.9.15)
 

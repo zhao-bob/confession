@@ -17,4 +17,10 @@
 
 > tu vero, cui numerati sunt capilli nostri, errore omnium qui mihi instabant ut discerem utebaris ad utilitatem meam, meo autem, qui discere nolebam, utebaris ad poenam meam, qua plecti non eram indignus, tantillus puer et tantus peccator.
 
-但主，我们头发都被祢数过，祢确实用所有催迫我读书的人的错误来为我好：而祢也确实用我不甘愿学习的错误来惩罚我。
+但祢，我们头发都被祢数过[^2]，确实使所有催迫我学习的人的错误变为我的优势：而我不愿学习的错误，祢就用来成为我的惩罚。而这责罚是我配得的---这么小的男孩，却是如此大的罪人。
+
+[^2]: [太10:30](https://biblehub.com/matthew/10-30.htm) 而甚至你们那头发都被数过。
+
+> ita de non bene facientibus tu bene faciebas mihi et de peccante me ipso iuste retribuebas mihi. iussisti enim et sic est, ut poena sua sibi sit omnis inordinatus animus.
+
+因此，以那些做得不好的人为工具，祢对我做了好事；而祢由我自身的罪恶公正地惩罚了我。因为这甚至是祢已按立的：以使每个不节制的感情都导向它自身的惩罚。
