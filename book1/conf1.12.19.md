@@ -23,4 +23,6 @@
 
 > ita de non bene facientibus tu bene faciebas mihi et de peccante me ipso iuste retribuebas mihi. iussisti enim et sic est, ut poena sua sibi sit omnis inordinatus animus.
 
-因此，以那些做得不好的人为工具，祢对我做了好事；而祢由我自身的罪恶公正地惩罚了我。因为这甚至是祢已按立的：以使每个不节制的感情都导向它自身的惩罚。
+因此，借着那些做得不好的人，祢向我行了善事；而由我自身的罪恶，祢公正地对我索偿[^3]。因为这正是祢已按立的：以使每个失序的心灵都成为它自身的惩罚。
+
+[^2]: [诗142:7](https://biblehub.com/psalms/142-7.htm) 请将我的灵魂从牢狱中释放，以使我能赞美祢的名。义人会因祢对我的善良而聚集在我左右。
