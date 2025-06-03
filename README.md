@@ -24,8 +24,7 @@
 
 ### [第七章 1. 7. 11](https://zhao-bob.github.io/confession/book1/conf1.7.11)、[1. 7. 12](https://zhao-bob.github.io/confession/book1/conf1.7.12)
 
-### 第八章 1. 8. 13 待补充
-<!--[第八章 1. 8. 13] (https://zhao-bob.github.io/confession/book1/conf1.8.13)  -->
+### [第八章 1. 8. 13] (https://zhao-bob.github.io/confession/book1/conf1.8.13)
 
 ### [第九章 1. 9. 14](https://zhao-bob.github.io/confession/book1/conf1.9.14)、[1. 9. 15](https://zhao-bob.github.io/confession/book1/conf1.9.15)
 
