@@ -15,4 +15,4 @@
 
 > unde tamen et hoc nisi de peccato et vanitate vitae, qua caro eram et spiritus ambulans et non revertens?
 
-但除非从此生的罪恶和虚荣中来的，这从何而来呢？
+但除非从此生的罪恶和虚荣中来的，这厌恶从何而来呢？因为我“不过是肉体，逝去而不再来的一阵风。”
