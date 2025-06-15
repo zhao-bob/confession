@@ -28,4 +28,4 @@
 
 > et si prohiberer ea legere, dolerem, quia non legerem quod dolerem. tali dementia honestiores et uberiores litterae putantur quam illae quibus legere et scribere didici.
 
-而假使我被禁止阅读这些诗歌，我会为我不能读使我忧伤的而忧伤。这种疯癫被认为是比那些学习读和写的课程更高贵、而更富有果实的教育。
+而假使我被禁止阅读这些诗歌，我会为我不能读使我忧伤的而忧伤。这种疯癫被认为是比那些学习读和写的更高贵、而更富有果实的功课。
