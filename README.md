@@ -34,4 +34,4 @@
 
 ### [第十二章 1. 12. 19](https://zhao-bob.github.io/confession/book1/conf1.12.19)
 
-### [第十三章 1. 13. 20](https://zhao-bob.github.io/confession/book1/conf1.13.20)、[1. 13. 21](https://zhao-bob.github.io/confession/book1/conf1.13.21)
+### [第十三章 1. 13. 20](https://zhao-bob.github.io/confession/book1/conf1.13.20)、[1. 13. 21](https://zhao-bob.github.io/confession/book1/conf1.13.21)、[1. 13. 22](https://zhao-bob.github.io/confession/book1/conf1.13.22)
