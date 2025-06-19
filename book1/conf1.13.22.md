@@ -27,7 +27,7 @@
 
 > peccabam ergo puer cum illa inania istis utilioribus amore praeponebam, vel potius ista oderam, illa amabam.
 
-因此我在童年就犯了罪：在那时，我将对那些虚无的故事的喜爱，放在对这些更有用的学习之上，或者不如说我厌恶后者，而喜欢前者。
+因此我在童年就犯了罪：在那时，我对那些虚无故事的喜爱，胜于这些更有用的学习，或者不如说我厌恶后者，而喜欢前者。
 
 > iam vero unum et unum duo, duo et duo quattuor, odiosa cantio mihi erat, et dulcissimum spectaculum vanitatis, equus ligneus plenus armatis et Troiae incendium atque ipsius umbra Creusae.
 
