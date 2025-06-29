@@ -19,4 +19,14 @@
 
 > didici vero illa sine poenali onere urgentium, cum me urgeret cor meum ad parienda concepta sua, [dagger]et qua[dagger] non esset, nisi aliqua verba didicissem non a docentibus sed a loquentibus, in quorum et ego auribus parturiebam quidquid sentiebam.
 
-的确，我学会这所有而没有被任何惩罚的压力敦促，因为我自身的心敦促我生出它自身的式样，而这除了通过学习词句我不能做到：这些词句不源自那些教导我的人，而是那些与我交谈的人，而我也能将我能构想的一切倾诉进他们的耳朵。
+的确，我学习拉丁文没有被任何惩罚的负担压迫，因为我的内心迫使我生出它的概念，而这我无法完成除非通过学习词句：这些词句不源自正规教导，而是聆听人们的交谈，而在他们的耳朵中我也生出我所感知的。
+
+> hinc satis elucet maiorem habere vim ad discenda ista liberam curiositatem quam meticulosam necessitatem.
+
+由此已充分表明：对于学习自由的好奇心比可怕的受限更有效力。
+
+> sed illius fluxum haec restringit legibus tuis, deus, legibus tuis a magistrorum ferulis usque ad temptationes martyrum, valentibus legibus tuis miscere salubres amaritudines revocantes nos ad te a iucunditate pestifera qua recessimus a te.
+
+但上帝啊，祢的律法将那好奇的泛滥勒紧；祢的律法从教师的戒尺一直到殉道者的审讯，并且祢的律法具有混合有益的严酷的大能，这将我们从最初将我们诱离祢的有毒快乐中召回祢身边[^1]。
+
+[^1]: [雅1:14](https://biblehub.com/james/1-14.htm) 但各人在被他们自身的邪恶欲望拽离并引诱时都会被诱惑。 [15](https://biblehub.com/james/1-15.htm) 于是，欲望已孕育后，它就诞生出罪恶；而罪恶，当它发育完全，就诞生出死亡。
