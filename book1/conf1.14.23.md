@@ -27,6 +27,6 @@
 
 > sed illius fluxum haec restringit legibus tuis, deus, legibus tuis a magistrorum ferulis usque ad temptationes martyrum, valentibus legibus tuis miscere salubres amaritudines revocantes nos ad te a iucunditate pestifera qua recessimus a te.
 
-但上帝啊，祢的律法将那好奇的泛滥勒紧；祢的律法从教师的戒尺一直到殉道者的审讯，并且祢的律法具有混合有益的严酷的大能，这将我们从最初将我们诱离祢的有毒快乐中召回祢身边[^1]。
+但上帝啊，祢的律法将那好奇的放浪勒紧；祢的律法从教师的戒尺一直到殉道者的审讯，并且祢的律法强大而混合有益的苦楚，这将我们从诱离祢的有毒快乐中向祢召回[^1]。
 
-[^1]: [雅1:14](https://biblehub.com/james/1-14.htm) 但各人在被他们自身的邪恶欲望拽离并引诱时都会被诱惑。 [15](https://biblehub.com/james/1-15.htm) 于是，欲望已孕育后，它就诞生出罪恶；而罪恶，当它发育完全，就诞生出死亡。
+[^1]: [雅1:14](https://biblehub.com/james/1-14.htm) 但各人在被他们自身的邪恶欲望拽离并引诱时都会被诱惑。 [15](https://biblehub.com/james/1-15.htm) 于是，欲望已孕育后，它就诞生出罪恶；而罪恶，当它发育完全，就诞生出死亡。 [但9:9](https://biblehub.com/daniel/9-9.htm) 主我们的上帝富于宽容和饶恕，尽管我们已叛变祂；
