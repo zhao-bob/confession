@@ -26,4 +26,4 @@
 
 > sed verius dicitur quod fingebat haec quidem ille, sed hominibus flagitiosis divina tribuendo, ne flagitia flagitia putarentur et ut, quisquis ea fecisset, non homines perditos sed caelestes deos videretur imitatus.
 
-但假使他这样说会更真实：“这些的确是他的虚构，但他将神的属性归属给罪恶的人们，以使犯法能不被认算为犯法，并使无论谁这样犯法能似乎是仿效属天的诸神而不是被抛弃的人们。”
+但这样说会更真实：他的确虚构了这些，但他将神性归属给无耻的人类，于是罪行不再被算是罪行，并以致无论谁这样做，都像是仿效属天的诸神而不是堕落的人类。
