@@ -22,4 +22,8 @@
 
 > quis autem paenulatorum magistrorum audit aure sobria ex eodem pulvere hominem clamantem et dicentem: `fingebat haec Homerus et humana ad deos transferebat: divina mallem ad nos'?
 
-但我们身着长袍的教授哪个会温和地聆听一个在他们自己学校培养的人疾呼说：“这些是荷马的虚构；他将人类的东西转移给诸神。我多么希冀他会将神的东西转移给我们。”
+但哪个身着长袍的教授会以清醒的耳朵聆听一个出自相同竞技场灰尘的人疾呼说：“荷马虚构了这些，而他将人性的东西转移给诸神：我多希望他会将神性的东西转移给我们。”？
+
+> sed verius dicitur quod fingebat haec quidem ille, sed hominibus flagitiosis divina tribuendo, ne flagitia flagitia putarentur et ut, quisquis ea fecisset, non homines perditos sed caelestes deos videretur imitatus.
+
+但假使他这样说会更真实：“这些的确是他的虚构，但他将神的属性归属给罪恶的人们，以使犯法能不被认算为犯法，并使无论谁这样犯法能似乎是仿效属天的诸神而不是被抛弃的人们。”
