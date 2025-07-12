@@ -15,6 +15,14 @@
 
 > non omnino per hanc turpitudinem verba ista commodius discuntur, sed per haec verba turpitudo ista confidentius perpetratur.
 
-这些词汇丝毫不因为这种下流而更容易学会的，而是借着它们，下流被肆无忌惮地施犯。
+这些词汇丝毫不借着这淫秽而更容易被学会，而是借着这些词汇，这淫秽更肆无忌惮地被施犯。
+
+> non accuso verba quasi vasa electa atque pretiosa, sed vinum erroris quod in eis nobis propinabatur ab ebriis doctoribus, et nisi biberemus caedebamur, nec appellare ad aliquem iudicem sobrium licebat. 
+
+我不怪罪这些词汇---它们如同甄选且珍贵的器皿，可谬误之酒却被醉酒的教师们倒入其中，并递给我们喝，而我们若不喝就被鞭挞，且不允许向任何一位清醒的法官申诉。
+
+> et tamen ego, deus meus, in cuius conspectu iam secura est recordatio mea, libenter haec didici, et eis delectabar miser, et ob hoc bonae spei puer appellabar.
+
+然而，我的上帝啊，在祢的视域下我现在能心安地回想这：我心甘情愿地并带着喜悦学习了这些事情，而为此我被称为一个拥有美好前程的男孩。
 
 
