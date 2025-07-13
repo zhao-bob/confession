@@ -23,6 +23,6 @@
 
 > et tamen ego, deus meus, in cuius conspectu iam secura est recordatio mea, libenter haec didici, et eis delectabar miser, et ob hoc bonae spei puer appellabar.
 
-然而，我的上帝啊，在祢的视域下我现在能心安地回想这：我心甘情愿地并带着喜悦学习了这些事情，而为此我被称为一个拥有美好前程的男孩。
+然而，我的上帝啊，在祢面前我现在能心安地回想这：我带着喜悦学习了这些并乐在其中，而为此可怜的我被称为一个有着美好前程的男孩。
 
 
