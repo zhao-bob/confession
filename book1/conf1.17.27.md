@@ -7,7 +7,7 @@
 
 > proponebatur enim mihi negotium, animae meae satis inquietum praemio laudis et dedecoris vel plagarum metu, ut dicerem verba Iunonis irascentis et dolentis quod non posset Italia Teucrorum avertere regem, quae numquam Iunonem dixisse audieram.
 
-记得有一项任务被布置给我，而使我灵魂陷入深深的不安，因为其中要么得到赞美的奖励，要么得到羞辱甚至鞭打的恐惧。我要演绎朱诺在不能“遏制特洛伊国王登陆意大利”时狂暴而忧愁的陈词，而我知道朱诺从未说过这些。
+记得有一项任务被布置给我，而使我灵魂陷入深深的不安，因为其中要么得到赞美的奖励，要么得到羞辱甚至鞭打的恐惧。我们要演绎朱诺在不能“遏制特洛伊国王登陆意大利”时狂暴而忧愁的陈词，而我知道朱诺从未说过这些。
 
 > sed figmentorum poeticorum vestigia errantes sequi cogebamur, et tale aliquid dicere solutis verbis quale poeta dixisset versibus.
 
