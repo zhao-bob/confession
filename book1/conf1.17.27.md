@@ -29,6 +29,6 @@
 
 > laudes tuae, domine, laudes tuae per scripturas tuas suspenderent palmitem cordis mei, et non raperetur per inania nugarum turpis praeda volatilibus. non enim uno modo sacrificatur transgressoribus angelis.
 
-我本该赞美祢，主啊，祢的赞美本会通过祢的经文撑起我内心的枝蔓；它就不会被这些空虚的琐事拽离，成为空中精灵们的可耻猎物。因为人们向堕落天使献祭的道路不止一条。
+祢的赞美，主啊，祢的赞美本会藉着祢的经文撑起我内心的枝蔓；它就不会被这些空虚的琐事拽离，成为空中精灵们的可耻猎物。因为人们向堕落天使献祭的道路不止一条。
 
 
