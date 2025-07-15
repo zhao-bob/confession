@@ -11,7 +11,7 @@
 
 > non enim deerat, domine, memoria vel ingenium, quae nos habere voluisti pro illa aetate satis, sed delectabat ludere et vindicabatur in nos ab eis qui talia utique agebant.
 
-主啊，我们在记忆力或智力上并不缺乏，因为是祢的意志，使我们具备了对我们的年龄所足够的，可我们的心智却以玩耍为乐，并且我们为此被那些在做同样事情的人惩罚。
+主啊，我们在记忆力或才智上并不缺乏，因为是祢的意志，使我们具备了对我们的年龄所足够的，可我们的心智却以玩耍为乐，并且我们为此被那些在做同样事情的人惩罚。
 
 > sed maiorum nugae negotia vocantur, puerorum autem talia cum sint, puniuntur a maioribus, et nemo miseratur pueros vel illos vel utrosque.
 

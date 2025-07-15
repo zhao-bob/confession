@@ -11,7 +11,7 @@
 
 > et vide quemadmodum se concitat ad libidinem quasi caelesti magisterio: `at quem deum! inquit qui templa caeli summo sonitu concutit. ego homuncio id non facerem? ego vero illud feci ac libens.'
 
-而看他如何激发他自己的情欲：他说“伟大的神啊！他用雷声震动至高天宫；而我，一个无名小卒，难道不应做同样的事吗？的确，我已做成，而满心欢喜。”---这仿佛藉着一种属天的权威。
+而看他如何激发他自己的情欲：他说“伟大的神啊！他用雷声震动至高天宫；而我，一个小卒，难道不应做同样的事吗？的确，我已做成，而满心欢喜。”---这仿佛藉着一种属天的权威。
 
 > non omnino per hanc turpitudinem verba ista commodius discuntur, sed per haec verba turpitudo ista confidentius perpetratur.
 
