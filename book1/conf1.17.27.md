@@ -25,10 +25,13 @@
 
 看啊， 难道这所有不都是风烟吗[^1]？难道就没有锻炼我的才智和口才的其他地方吗？
 
-[^1]: [诗102:3](https://biblehub.com/psalms/102-3.htm) 因为我的日子消散如烟；我的骨头燃烧如红热的余烬。 [赛41:29](https://biblehub.com/isaiah/41-29.htm) 看啊，他们所有都是虚假的！他们的事迹合计为无物；他们的形象像风一样空虚.
+[^1]: [诗102:3](https://biblehub.com/psalms/102-3.htm) 因为我的日子消散如烟；我的骨头燃烧如红热的余烬。 [赛41:29](https://biblehub.com/isaiah/41-29.htm) 看啊，他们所有都是虚假的！他们的事迹合计为无物；他们的形象像风一样空虚。
 
 > laudes tuae, domine, laudes tuae per scripturas tuas suspenderent palmitem cordis mei, et non raperetur per inania nugarum turpis praeda volatilibus. non enim uno modo sacrificatur transgressoribus angelis.
 
-祢的赞美，主啊，祢的赞美本会藉着祢的经文撑起我内心的枝蔓；它就不会被这些空虚的琐事拽离，成为空中精灵们的可耻猎物。因为人们向堕落天使献祭的道路不止一条。
+祢的赞美，主啊，祢的赞美本应藉着祢的经文撑起我内心的枝蔓[^2]，它就不会被空虚的琐事掠去，而成为飞鸟可耻的猎物。而向堕落天使献祭的方式不止一种。
+
+[^2]: [约15:4](https://biblehub.com/john/15-4.htm) 留存在我里面，如同我也留存在你们里面。没有树枝能由它自己结果实；它必须留存在葡萄树上。除非你们留存在我里面，否则你们也不能结果实。
+
 
 
