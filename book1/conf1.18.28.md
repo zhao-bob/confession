@@ -19,4 +19,6 @@
 
 > non enim pedibus aut a spatiis locorum itur abs te aut reditur ad te, aut vero filius ille tuus minor equos vel currus vel naves quaesivit, aut avolavit pinna visibili, aut moto poplite iter egit, ut in longinqua regione vivens prodige dissiparet quod dederas proficiscenti, dulcis pater quia dederas, et egeno redeunti dulcior: in affectu ergo libidinoso, id enim est tenebroso, atque id est longe a vultu tuo.
 
-因为既不是靠我们的脚，也不是靠空间的改变，我们就转离祢，或回归祢。那位小儿子没有租用马匹或者马车、或者船只，也没有以可见的翅膀飞走，或是靠步行跋涉，以致他能在遥远的国度大肆挥霍祢在他动身时赐给他的所有。当祢赐予时，祢是一位温良的父亲；而当他潦倒归来时，甚至更显祢的温良！活在情欲中，也就是活在黑暗中---这就是远离你的面容。
+因为不是靠脚，也不是靠空间的移动，我们就远离祢，或回归祢。祢的经书中那位小儿子没有寻找马匹或者车辆、或者船只，或是以看得见的翅膀飞走，或是靠双膝跋涉旅途，以致他能在遥远的地区生活而大肆挥霍在他启程时祢所赐予的[^5]。当祢赐予时，祢是一位温良的父亲；而他潦倒归来，就更显祢的温良！因此活在荒淫的情感中，这就是活在黑暗中，这也就是远离你的面。
+
+[^5]: 见[路15](https://biblehub.com/niv/luke/15.htm) 中浪子的比喻。
