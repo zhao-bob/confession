@@ -3,7 +3,7 @@
 
 > vide, domine deus, et patienter, ut vides, vide quomodo diligenter observent filii hominum pacta litterarum et syllabarum accepta a prioribus locutoribus, et a te accepta aeterna pacta perpetuae salutis neglegant, ut qui illa sonorum vetera placita teneat aut doceat, si contra disciplinam grammaticam sine adspiratione primae syllabae hominem dixerit, magis displiceat hominibus quam si contra tua praecepta hominem oderit, cum sit homo.
 
-看啊，主上帝，请一如既往耐心地察看，看人类的子孙多么勤勉地遵守接受自先前讲话的人那里的字母和音节的约定，而他们却忽视了领受自祢的永久拯救的不朽约定，以致发展到如此地步：假如某个掌握或教授古老发音规则的人违背文法教导，说“hominem”（“human”）时不送气第一个音节（发成“ominem”而使它成为“a'uman being”），他会比作为一个人，违背祢的诫命而憎恨一个人[^1]，而更受人谴责。
+看啊，主上帝，请一如既往耐心地察看，看人类的子孙多么勤勉地遵守接受自先前讲话的人那里的字母和音节的约定，而他们却忽视了领受自祢的永久拯救的不朽约定，以致发展到如此地步：假如某个掌握或教授古老发音规则的人违背文法教导，说“hominem”（“human”）时不送气第一个音节（发成“ominem”而使它成为“a'uman being”），他会比作为一个人，违背祢的诫命而憎恨一个人[^1]，而更使人不悦。
 
 [^1]: [可12:33](https://biblehub.com/mark/12-33.htm) 用你们所有的心、用你们所有的理解、用你们所有的力量去爱祂，并要爱邻如己，这比所有燔祭和献祭都重要。”
 
