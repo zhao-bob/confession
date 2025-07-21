@@ -7,7 +7,7 @@
 
 > vides haec, domine, et taces, longanimis et multum misericors et verax. numquid semper tacebis? et nunc eruis de hoc immanissimo profundo quaerentem te animam et sitientem delectationes tuas, et cuius cor dicit tibi, `quaesivi vultum tuum.' vultum tuum, domine, requiram: nam longe a vultu tuo in affectu tenebroso.
 
-主啊，祢“坚忍，而满有宽恕与真理”[^1]，祢看见这，而保持静默。祢会永远保持静默吗？而现在祢仍从那无尽的深渊[^2]拔救那寻求祢并渴慕祢喜悦的灵魂[^3]，而他的“内心对祢说：‘我已寻求祢的面；主啊，祢的面，我会问求。’”[^4]因为远离祢的面就是在情感的黑暗中。
+主啊，祢“坚忍，而满有宽恕与真理”[^1]，祢看见这，而保持静默。祢会永远保持静默吗？而现在祢仍从那无尽的深渊[^2]拔救那寻求祢并渴慕祢喜悦的心灵[^3]，而他的“内心对祢说：‘我已寻求祢的面；主啊，祢的面，我会问求。’”[^4]因为远离祢的面就是在情感的黑暗中。
 
 [^1]: [出34:6](https://biblehub.com/exodus/34-6.htm) 而祂从摩西前面经过，宣布着：“耶和华，耶和华，怜悯而仁慈的上帝，不轻易发怒，满溢着爱和信实， [诗86:15](https://biblehub.com/psalms/86-15.htm) 但主啊，祢是富有怜悯和仁慈的上帝，不轻易发怒，满溢着爱和信实。
 

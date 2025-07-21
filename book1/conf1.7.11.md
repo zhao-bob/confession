@@ -35,7 +35,7 @@
 
 > ita inbecillitas membrorum infantilium innocens est, non animus infantium. vidi ego et expertus sum zelantem parvulum: nondum loquebatur et intuebatur pallidus amaro aspectu conlactaneum suum.
 
-因此，婴儿身体的软弱是无辜的，但婴儿的心灵不是。我亲自观察并知道一个小婴孩也会嫉妒，虽然他还不会讲话，却盯着分享他奶水的弟兄，苍白的面容带着愠怒。
+因此，婴儿身体的软弱是无辜的，但婴儿的灵魂不是。我亲自观察并知道一个小婴孩也会嫉妒，虽然他还不会讲话，却盯着分享他奶水的弟兄，苍白的面容带着愠怒。
 
 > quis hoc ignorat? expiare se dicunt ista matres atque nutrices nescio quibus remediis.
 
