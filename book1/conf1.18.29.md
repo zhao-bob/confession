@@ -17,4 +17,7 @@
 
 > quam tu secretus es, habitans in excelsis in silentio, deus solus magnus, lege infatigabili spargens poenales caecitates supra inlicitas cupiditates, cum homo eloquentiae famam quaeritans ante hominem iudicem circumstante hominum multitudine inimicum suum odio immanissimo insectans vigilantissime cavet, ne per linguae errorem dicat, `inter hominibus', et ne per mentis furorem hominem auferat ex hominibus, non cavet.
 
-惟独伟大的上帝啊，祢在静默中居住在高处是如此深邃。祢由一种不倦怠的律法，对不法的欲望猛掷下瞎眼的刑罚！当一个寻求雄辩声誉的人站在一个人类法官面前时，在他周围挤满一大群人，并对他的敌人以最猛烈的仇恨进行谩骂，他最警惕地留心于他的舌头不会滑落到一个语法错误中，例如，要说“inter hominibus”（而不是“inter homines”），但他根本不在意， 在他精神的狂怒中，他从他的同胞中将一个人了断（“ex hominibus”）。
+惟独伟大的上帝啊，祢在静默中栖居在高处[^4]是如此隐秘！祢用永不倦怠的律法，在不法的贪婪之上施以瞎眼的刑罚：当一个寻求雄辩声誉的人站在人类法官面前，周围挤满一大群人。他对自己的敌人以最猛烈的仇恨进行谩骂，而他最警惕地留心于不会借着语言错误而毁掉“homines”一词（说“inter hominibus”），但他毫不在意，借着精神的狂怒而从人群中了断一个人（“ex hominibus”）。
+<!-- 而说“inter hominibus”（应该说“ex homines”）， -->
+
+[^4]: [赛33:5](https://biblehub.com/isaiah/33-5.htm) 耶和华是显赫的，因为祂栖居在高处；祂会以祂的公义和正义充满锡安。
