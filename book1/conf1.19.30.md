@@ -15,6 +15,18 @@
 
 [^1]: [诗31:22](https://biblehub.com/psalms/31-22.htm) 我在我的惊慌中说，“我从祢的视野被切断！”但当我向祢呼唤求救时祢听见了我求宽恕的呼喊。
 
-> nam in illis iam quid me foedius fuit, ubi etiam talibus displicebam fallendo innumerabilibus mendaciis et paedagogum et magistros et parentes amore ludendi, studio spectandi nugatoria et imitandi ludicra inquietudine? furta etiam faciebam de cellario parentum et de mensa, vel gula imperitante vel ut haberem quod darem pueris ludum suum mihi quo pariter utique delectabantur tamen vendentibus.
+> nam in illis iam quid me foedius fuit, ubi etiam talibus displicebam fallendo innumerabilibus mendaciis et paedagogum et magistros et parentes amore ludendi, studio spectandi nugatoria et imitandi ludicra inquietudine? 
 
-因为在祢眼中，什么比我已经是的更声名狼藉呢？因为我甚至得罪了我自身的同类，并以无尽的谎言欺骗我的书仆、我的老师和父母---所有都源自一种对游戏的热爱，一种轻浮的奇观的渴求，一种醉心舞台的躁动，以模仿我在这些表演中所看到的。我从父母的地窖和桌子上偷藏食物，有时被贪吃驱使，有时仅仅为有些东西能给其他男孩，以换取他们准备卖的小玩具，尽管他们和我一样喜欢它们。
+因为在祢眼中，什么比我已所是的更声名狼藉的呢？其中我还以无数的谎言欺骗我的书仆、老师和父母，而使这些人不悦---只因对游戏的热爱，对轻浮演出的狂热以及对舞台剧模仿的躁动。
+
+> furta etiam faciebam de cellario parentum et de mensa, vel gula imperitante vel ut haberem quod darem pueris ludum suum mihi quo pariter utique delectabantur tamen vendentibus.
+
+我还从父母的储藏室和桌子上偷藏食物，有时被贪吃驱使，有时仅仅为有东西能给其他男孩，而他们与我一样喜欢游戏，并会将他们的玩具卖给我。
+
+> in quo etiam ludo fraudulentas victorias ipse vana excellentiae cupiditate victus saepe aucupabar.
+
+不仅如此，在这类游戏中，我经常寻求不诚实的胜利，使我自己被追求优越的虚空欲望征服。
+
+> quid autem tam nolebam pati atque atrociter, si deprehenderem, arguebam, quam id quod aliis faciebam?
+
+而是什么我如此不情愿忍受？而又是什么，当我抓到任何人这样对我时，我还如此暴烈地责难呢？不正是我对别人做的那些事吗？
