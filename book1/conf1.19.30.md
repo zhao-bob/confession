@@ -17,16 +17,20 @@
 
 > nam in illis iam quid me foedius fuit, ubi etiam talibus displicebam fallendo innumerabilibus mendaciis et paedagogum et magistros et parentes amore ludendi, studio spectandi nugatoria et imitandi ludicra inquietudine? 
 
-因为在祢眼中，什么比我已所是的更声名狼藉的呢？其中我还以无数的谎言欺骗我的书仆、老师和父母，而使这些人不悦---只因对游戏的热爱，对轻浮演出的狂热以及对舞台剧模仿的躁动。
+因为在祢眼中，什么比我已所是的更卑劣的呢？其中我还以无数的谎言欺骗我的书仆、老师和父母，而使这些人不悦---只因对游戏的热爱，对轻浮演出的狂热以及对舞台剧模仿的躁动。
 
 > furta etiam faciebam de cellario parentum et de mensa, vel gula imperitante vel ut haberem quod darem pueris ludum suum mihi quo pariter utique delectabantur tamen vendentibus.
 
-我还从父母的储藏室和桌子上偷藏食物，有时被贪吃驱使，有时仅仅为有东西能给其他男孩，而他们与我一样喜欢游戏，并会将他们的玩具卖给我。
+我还从父母的储藏室和桌子上偷藏食物，有时被贪吃驱使，有时仅仅为能有东西给其他男孩，而他们与我一样喜欢游戏，并会将他们的玩具卖给我。
 
 > in quo etiam ludo fraudulentas victorias ipse vana excellentiae cupiditate victus saepe aucupabar.
 
-不仅如此，在这类游戏中，我经常寻求不诚实的胜利，使我自己被追求优越的虚空欲望征服。
+不仅如此，在这类游戏中，我经常寻求不诚实的胜利，使自己被优越的虚空贪欲征服。
 
 > quid autem tam nolebam pati atque atrociter, si deprehenderem, arguebam, quam id quod aliis faciebam?
 
-而是什么我如此不情愿忍受？而又是什么，当我抓到任何人这样对我时，我还如此暴烈地责难呢？不正是我对别人做的那些事吗？
+然而我如此不愿忍受的是什么？而又是什么，如果我抓到任何人这样对我时，我如此暴烈地责难呢？不正是我对他们做的这些吗？
+
+> et, si deprehensus arguerer, saevire magis quam cedere libebat. istane est innocentia puerilis? non est, domine, non est.
+
+而如果我被抓住而被责难，我宁愿暴怒也不愿屈服。难道这就是儿童的无辜吗？这不是，主啊，绝不是。
