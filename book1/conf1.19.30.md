@@ -29,8 +29,18 @@
 
 > quid autem tam nolebam pati atque atrociter, si deprehenderem, arguebam, quam id quod aliis faciebam?
 
-然而我如此不愿忍受的是什么？而又是什么，如果我抓到任何人这样对我时，我如此暴烈地责难呢？不正是我对他们做的这些吗？
+然而是什么我如此不愿忍受？而又是什么，如果我抓到任何人这样对我时，我如此暴烈地责难呢？不正是我对他们做的这些吗？
 
 > et, si deprehensus arguerer, saevire magis quam cedere libebat. istane est innocentia puerilis? non est, domine, non est.
 
 而如果我被抓住而被责难，我宁愿暴怒也不愿屈服。难道这就是儿童的无辜吗？这不是，主啊，绝不是。
+
+> oro te, deus meus: nam haec ipsa sunt quae a paedagogis et magistris, a nucibus et pilulis et passeribus, ad praefectos et reges, aurum, praedia, mancipia, haec ipsa omnino succedentibus maioribus aetatibus transeunt, sicuti ferulis maiora supplicia succedunt.
+
+我的上帝啊，我向祢祷告：因为所有这些罪恶本身一直伴随我们，它们只是随着我们迈向人生的更高阶段，从书仆和老师，从弹珠、皮球和麻雀那里被转移到长官和国王，以及黄金、农场和奴隶那里。同样，棍棒也被更严厉的刑罚取代。
+
+> humilitatis ergo signum in statura pueritiae, rex noster, probasti, cum aisti, `talium est regnum caelorum.'
+
+因此，我们的君王啊，祢确实赞成将童年低矮的身形作为谦卑的符号，当祢说：“天国的国度属于这样的这些人”[^2]时。
+
+[^2]: [太19:14](https://biblehub.com/matthew/19-14.htm) 耶稣说，“让小孩子们到我这里，而不要阻碍他们，因为天国的国度属于这样的这些人。”
