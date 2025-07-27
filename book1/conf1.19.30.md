@@ -29,7 +29,7 @@
 
 > quid autem tam nolebam pati atque atrociter, si deprehenderem, arguebam, quam id quod aliis faciebam?
 
-然而是什么我如此不愿忍受？而又是什么，如果我抓到任何人这样对我时，我如此暴烈地责难呢？不正是我对他们做的这些吗？
+然而是什么我如此不愿忍受？而又是什么，如果我抓到任何人这样对我，我如此暴烈地责难呢？不正是我对他们做的这些吗？
 
 > et, si deprehensus arguerer, saevire magis quam cedere libebat. istane est innocentia puerilis? non est, domine, non est.
 
