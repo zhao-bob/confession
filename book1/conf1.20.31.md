@@ -8,7 +8,7 @@
 
 > eram enim etiam tunc, vivebam atque sentiebam meamque incolumitatem, vestigium secretissimae unitatis ex qua eram, curae habebam, custodiebam interiore sensu integritatem sensuum meorum inque ipsis parvis parvarumque rerum cogitationibus veritate delectabar.
 
-因为甚至那时我就存在；我活着并感知并看护我自身的平安---一种至隐秘的合一的痕迹，而我的存在出自其中；由内在感受，我警守我感官的健全，而在这些微小事情上，以及对这些微小事情的思考中，真理使我欢喜。
+因为甚至那时我就存在，活着并感知自身的平安和那至隐秘的合一的痕迹，而出自其中我存在，拥有关切，并由内在感受，警守我感官的健全，而在这些微小事情上，以及对这些微小事情的思考中，真理使我欢喜。
 
 > falli nolebam, memoria vigebam, locutione instruebar, amicitia mulcebar, fugiebam dolorem, abiectionem, ignorantiam.
 
