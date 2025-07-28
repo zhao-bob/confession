@@ -16,7 +16,7 @@
 
 > quid in tali animante non mirabile atque laudabile? at ista omnia dei mei dona sunt. non mihi ego dedi haec, et bona sunt, et haec omnia ego.
 
-在这样一个生命中，什么不是奇妙而值得赞美的呢？但这一切都是我的上帝的恩赐：并非我将它们给了我自己，而且它们是善的，并且它们所有一起就是我自己。
+在这样一个生命中，什么不是奇妙而值得赞美的呢？但这一切都是我的上帝的恩赐：并非我将它们给了我自己，并且它们是善的，而它们所有一起就是我自己。
 
 > bonus ergo est qui fecit me, et ipse est bonum meum, et illi exulto bonis omnibus quibus etiam puer eram.
 
