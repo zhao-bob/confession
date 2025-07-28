@@ -3,7 +3,7 @@
 
 > horum ego puer morum in limine iacebam miser, et huius harenae palaestra erat illa, ubi magis timebam barbarismum facere quam cavebam, si facerem, non facientibus invidere. 
 
-这些就是当时的习俗，我，一个失落的男孩，躺在其入口。而这是那角斗沙场，其中我更畏惧犯下用词不当，而不是因已犯下而故意嫉妒那些未曾犯的人。
+这些就是当时的习俗，我，一个可怜的男孩，躺在其入口。而这是那角斗沙场，其中我更畏惧犯下用词不当，而不是因已犯下而故意嫉妒那些未曾犯的人。
 
 > dico haec et confiteor tibi, deus meus, in quibus laudabar ab eis quibus placere tunc mihi erat honeste vivere.
 

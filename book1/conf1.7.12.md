@@ -3,7 +3,7 @@
 
 > tu itaque, domine deus meus, qui dedisti vitam infanti et corpus, quod ita, ut videmus, instruxisti sensibus, compegisti membris, figura decorasti proque eius universitate atque incolumitate omnes conatus animantis insinuasti, iubes me laudare te in istis et confiteri tibi et psallere nomini tuo, altissime, quia deus es omnipotens et bonus, etiamsi sola ista fecisses, quae nemo alius potest facere nisi tu, une, a quo est omnis modus, formosissime, qui formas omnia et lege tua ordinas omnia.
 
-因此，主我的上帝啊，祢赐给婴儿生命和身体，如我们所见，祢已为它建构以感官，配备以四肢，装饰以美俊，并为它整体的完备和健康已将所有生命力植入其中---祢命令我为此赞美祢，并向祢忏悔，而向祢的名歌唱，至高者啊[^6]---因为祢是上帝，万能而善良，即使祢只完成这，但除了祢没有其他人能够做到---祢是万物原型源起的独一位，塑造万物的至美者，而祢按照祢的律法排定万物。
+因此，主我的上帝啊，祢赐给婴儿生命和身体，如我们所见，祢已为它建构以感官，配备以四肢，装饰以美俊，并为它整体的完备和福祉已将所有生命力植入其中---祢命令我为此赞美祢，并向祢忏悔，而向祢的名歌唱，至高者啊[^6]---因为祢是上帝，万能而善良，即使祢只完成这，但除了祢没有其他人能够做到---祢是万物原型源起的独一位，塑造万物的至美者，而祢按照祢的律法排定万物。
 
 [^6]: [诗92:1](https://biblehub.com/psalms/92-1.htm) 一首诗篇。一首圣歌。为安息日。赞美耶和华，并为祢的名---至高者啊---创作音乐是美善的，
 
