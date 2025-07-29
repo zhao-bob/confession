@@ -20,4 +20,14 @@
 
 > bonus ergo est qui fecit me, et ipse est bonum meum, et illi exulto bonis omnibus quibus etiam puer eram.
 
-于是，制造我的祂是善的，而祂是我的上帝；而在祂面前，我甚至会为我小时候拥有的每个美善的恩赐极度欢欣。
+因此，制造我的祂是善的，而祂本身就是我的善；而在祂面前，我甚至为我儿时的一切美善而欢欣[^1]。
+
+[^1]: [诗2:11](https://biblehub.com/psalms/2-11.htm) 以敬畏侍奉耶和华，并带着战兢欢欣。
+
+> hoc enim peccabam, quod non in ipso sed in creaturis eius me atque ceteris voluptates, sublimitates, veritates quaerebam, atque ita inruebam in dolores, confusiones, errores.
+
+可我却犯下这样的罪恶：我不在祂里面寻求快乐、崇高和真理，而在这些受造物---我和其余的人中，而因此我堕入到忧愁、困惑和谬误中。
+
+> gratias tibi, dulcedo mea et honor meus et fiducia mea, deus meus, gratias tibi de donis tuis: sed tu mihi ea serva.
+
+感谢归于祢，我的喜乐，我的骄傲，我的信赖，我的上帝---感谢归于祢是为祢的恩赐；而我祷告祢在我里面保守它们。
