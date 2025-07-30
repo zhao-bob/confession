@@ -30,4 +30,12 @@
 
 > gratias tibi, dulcedo mea et honor meus et fiducia mea, deus meus, gratias tibi de donis tuis: sed tu mihi ea serva.
 
-感谢归于祢，我的喜乐，我的骄傲，我的信赖，我的上帝---感谢归于祢是为祢的恩赐；而我祷告祢在我里面保守它们。
+我的上帝啊，感谢归于祢，我的甘饴，我的荣耀，我的信赖[^2]；感谢归于祢是为祢的恩赐[^3]。愿祢为我保守它们，
+
+[^2]: [诗71:5](https://biblehub.com/psalms/71-5.htm) 因为祢是我的希望，耶和华主宰啊，自我青年起祢就是我的信赖。
+
+[^3]: [林后9:15](https://biblehub.com/2_corinthians/9-15.htm) 为无以言表的恩赐，将感谢归于上帝！
+
+> ita enim servabis me, et augebuntur et perficientur quae dedisti mihi, et ero ipse tecum, quia et ut sim tu dedisti mihi.
+
+因为以此祢就会保守我，而那些祢已赐予我的将被增长并臻备，而我自身就会与祢同在，因为是祢给我的恩赐使我存在。

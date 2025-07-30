@@ -47,3 +47,5 @@
 ### [第十八章 1. 18. 28](https://zhao-bob.github.io/confession/book1/conf1.18.28)、[1. 18. 29](https://zhao-bob.github.io/confession/book1/conf1.18.29)
 
 ### [第十九章 1. 19. 30](https://zhao-bob.github.io/confession/book1/conf1.19.30)
+
+### [第二十章 1. 20. 31](https://zhao-bob.github.io/confession/book1/conf1.20.31)
