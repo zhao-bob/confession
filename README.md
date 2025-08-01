@@ -49,3 +49,7 @@
 ### [第十九章 1. 19. 30](https://zhao-bob.github.io/confession/book1/conf1.19.30)
 
 ### [第二十章 1. 20. 31](https://zhao-bob.github.io/confession/book1/conf1.20.31)
+
+## 第二卷
+
+奥古斯丁在这一卷专注于他的十六岁，这是充满无所事事、淫欲和青春期恶作剧的一年。偷梨子的记忆触发对罪恶行为的动机和目的的深入探讨。我变成了我自身的一片废土。
