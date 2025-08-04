@@ -3,8 +3,10 @@
 
 > et quid erat quod me delectabat, nisi amare et amari? sed non tenebatur modus ab animo usque ad animum quatenus est luminosus limes amicitiae, sed exhalabantur nebulae de limosa concupiscentia carnis et scatebra pubertatis, et obnubilabant atque obfuscabant cor meum, ut non discerneretur serenitas dilectionis a caligine libidinis.
 
-而除了爱与被爱，什么是令我喜悦的呢？但爱持续地从心灵到心灵的模式没被持守，可这才是友谊的光明之道；而浑浊雾气从肉体邪欲和青春期的涌泉中蒸腾而出，它们使我的内心变得如此模糊而黑暗，以致无法从阴沉的情欲分辨爱的晴天。
+而除了爱与被爱，什么是令我喜悦的呢？但爱持续地从心灵到心灵的模式没被持守，可这才是友谊的光明之道；而雾霾从浑浊的肉体邪欲和青春期的涌泉中蒸腾而出，它们使我的内心变得如此模糊而黑暗，以致无法从阴沉的情欲分辨爱的晴天。
 
-> utrumque in confuso aestuabat et rapiebat inbecillam aetatem per abrupta cupiditatum atque mersabat gurgite flagitiorum. invaluerat super me ira tua, et nesciebam. 
+> utrumque in confuso aestuabat et rapiebat inbecillam aetatem per abrupta cupiditatum atque mersabat gurgite flagitiorum. invaluerat super me ira tua, et nesciebam.
+
+而这两者混杂在一起沸腾，并抓着我软弱的青春穿过贪欲的峭壁而将我沉入无耻的漩涡中。祢的忿怒在我身上积蓄，而我却不知道。
 
 
