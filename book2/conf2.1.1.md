@@ -13,7 +13,7 @@
 
 > exarsi enim aliquando satiari inferis in adulescentia, et silvescere ausus sum variis et umbrosis amoribus, et contabuit species mea, et computrui coram oculis tuis placens mihi et placere cupiens oculis hominum.
 
-而在青年时我曾一时燃起满足低级趣味的兴致，而敢于奔向多变而阴郁的爱情森林。我的美貌已逐渐凋零[^2]，并在祢的瞳仁中变得腐朽，因为我取悦自己并渴望取悦人们的眼睛。
+而在青年时我曾一时燃起满足低级趣味的兴致，而敢于狂奔到多变而阴郁的爱情森林。我的美貌已逐渐凋零[^2]，并在祢的瞳仁中变得腐朽，因为我取悦自己并渴望取悦人们的眼睛。
 
 [^2]: [但10:8](https://biblehub.com/danial/10-8.htm) 所以我被单独留下，凝望这伟大的异象；我没有力量剩下，我的脸转为死般苍白，而我无能为力。
 
