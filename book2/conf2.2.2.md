@@ -17,4 +17,4 @@
 
 > o tardum gaudium meum! tacebas tunc, et ego ibam porro longe a te in plura et plura sterilia semina dolorum superba deiectione et inquieta lassitudine.
 
-
+我迟来的喜乐啊!那时祢静默不语，而我走得离祢越来越远，并以高傲的消沉和不安歇的疲倦成为越来越贫乏的忧伤种子。
