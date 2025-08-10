@@ -17,4 +17,14 @@
 
 > -- aut certe sonitum nubium tuarum vigilantius adverterem: 'tribulationem autem carnis habebunt huius modi; ego autem vobis parco'; et 'bonum est homini mulierem non tangere'; et 'qui sine uxore est, cogitat ea quae sunt dei, quomodo placeat deo; qui autem matrimonio iunctus est, cogitat ea quae sunt mundi, quomodo placeat uxori.'
 
----那么我肯定会更机警地留意祢云彩的声音：
+---那么我肯定会更机警地留意祢云彩的声音[^4]：“然而那些以此方式生活的人会有肉体上的烦忧；而我想使你们免受此”[^5]；和“对于男人不触碰女人是好的”[^6]；和“那没有妻子的人思考关于上帝的事---他如何能取悦上帝；而那被婚姻捆绑的人，思考关于世俗的事---他如何能取悦妻子。”[^7]
+
+[^4]: [可9:7](https://biblehub.com/mark/9-7.htm) 然后一片云出现并遮盖了他们，而一个话音从那云彩而来：“这是我的圣子，我所爱的。要听从祂！”
+
+[^5]: [林前7:7](https://biblehub.com/1_corinthians/7-28.htm) 但如果你们确实结婚，你们未曾犯罪；但如果一个处女结婚，她也未曾犯罪。然而那些结婚的人会在此生面对许多忧愁，而我想使你们免受此。
+
+[^6]: [林前7:1](https://biblehub.com/1_corinthians/7-1.htm) 现在对于这些问题你们写道：“对于男人不与女人有性关系是好的。” [2](https://biblehub.com/1_corinthians/7-2.htm) 但淫乱正在出现，各个男人应当与他自身的妻子有性关系，而各个女人应当与她自身的丈夫有性关系。
+
+[^7]: [林前7:32](https://biblehub.com/1_corinthians/7-32.htm) 我希望你们免于担忧。一个未婚男人挂虑主的事务---他能如何取悦主。 [33](https://biblehub.com/1_corinthians/7-33.htm) 但一个已婚男人挂虑这世界的事务---他如何能取悦他的妻子---
+
+> has ergo voces exaudirem vigilantior, et abscisus propter regnum caelorum felicior expectarem amplexus tuos.
