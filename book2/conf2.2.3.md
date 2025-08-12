@@ -28,3 +28,7 @@
 [^7]: [林前7:32](https://biblehub.com/1_corinthians/7-32.htm) 我希望你们免于担忧。一个未婚男人挂虑主的事务---他能如何取悦主。 [33](https://biblehub.com/1_corinthians/7-33.htm) 但一个已婚男人挂虑这世界的事务---他如何能取悦他的妻子---
 
 > has ergo voces exaudirem vigilantior, et abscisus propter regnum caelorum felicior expectarem amplexus tuos.
+
+而我本应更机警地听从这声音，并为天国国度自阉[^8]，我就会更加幸福地期待祢的怀抱。
+
+[^8]: [太19:12](https://biblehub.com/matthew/19-12.htm) 因为有些阉人出生就是那样，而有些阉人是被其他人变成阉人的---还有那些为了天国国度的缘故而选择像阉人一样生活的人。那能接受这的人应该接受它。”
