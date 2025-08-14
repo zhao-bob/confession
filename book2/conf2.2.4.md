@@ -14,3 +14,9 @@
 [^2]: [诗94:20](https://biblehub.com/psalms/94-20.htm) 一个败坏的宝座能与祢联盟吗？---一个由它的法令导向痛苦的宝座。
 
 [^3]: [申32:39](https://biblehub.com/deuteronomy/32-39.htm) 现在要看到我就是祂！除我外没有神。我带来死亡而我赐予生命，我伤害而我治愈，而无人能从我的手中解救。
+
+> ubi eram? et quam longe exulabam a deliciis domus tuae anno illo sexto decimo aetatis carnis meae, cum accepit in me sceptrum (et totas manus ei dedi) vesania libidinis, licentiosae per dedecus humanum, inlicitae autem per leges tuas?
+
+在我肉体年龄的十六岁时，当情欲疯狂的权杖（我已完全将手交给它，尽管没有祢律法的许可，它却借着人的无耻放肆）已掌控我时，我在哪呢？而我要被放逐远离祢住所的安乐多久呢[^4]？
+
+[^4]: [弥2:9](https://biblehub.com/micah/2-9.htm) 你们将我子民的女人们从她们安乐的住所驱逐。你们将我的祝福从她们的子女永远夺去。
