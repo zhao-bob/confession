@@ -20,3 +20,8 @@
 在我肉体年龄的十六岁时，当情欲疯狂的权杖（我已完全将手交给它，尽管没有祢律法的许可，它却借着人的无耻放肆）已掌控我时，我在哪呢？而我要被放逐远离祢住所的安乐多久呢[^4]？
 
 [^4]: [弥2:9](https://biblehub.com/micah/2-9.htm) 你们将我子民的女人们从她们安乐的住所驱逐。你们将我的祝福从她们的子女永远夺去。
+
+> non fuit cura meorum ruentem excipere me matrimonio, sed cura fuit tantum ut discerem sermonem facere quam optimum et persuadere dictione.
+
+关心我的人不是用婚姻使我从毁坏中挣脱，而只关心我能学会以最佳的方式演讲而以雄辩令人信服。
+
