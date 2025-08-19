@@ -18,3 +18,7 @@
 [^2]: [诗130:1](https://biblehub.com/psalms/130-1.htm) 上行的圣歌。耶和华啊，我出自诸渊向祢呼求。
 
 [^3]: [哈2:4](https://biblehub.com/habakkuk/2-4.htm) “看啊，敌人被膨胀；他的灵魂不正直---但义者由信心而活---
+
+> quis enim non extollebat laudibus tunc hominem, patrem meum, quod ultra vires rei familiaris suae impenderet filio quidquid etiam longe peregrinanti studiorum causa opus esset?
+
+而当时谁不盛赞我的父亲这人呢？尽管超出家庭自身的实力，他仍花钱让他儿子远途留学，只为他学业有成。
