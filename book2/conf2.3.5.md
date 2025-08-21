@@ -22,3 +22,11 @@
 > quis enim non extollebat laudibus tunc hominem, patrem meum, quod ultra vires rei familiaris suae impenderet filio quidquid etiam longe peregrinanti studiorum causa opus esset?
 
 而当时谁不盛赞我的父亲这人呢？尽管超出家庭自身的实力，他仍花钱让他儿子远途留学，只为他学业有成。
+
+> multorum enim civium longe opulentiorum nullum tale negotium pro liberis erat, cum interea non satageret idem pater qualis crescerem tibi aut quam castus essem, dummodo essem disertus, vel desertus potius a cultura tua, deus, qui es unus verus et bonus dominus agri tui, cordis mei.
+
+而许多远比他富裕的市民都没有为子女做这样的事情。只是在此期间正是这个父亲不为我怎样向着祢发展或如何使我洁净操劳，而只要我的口才能被栽培，却不管我远离祢的培育而被荒芜[^4]。上帝啊，祢是祢的田地---我的内心独一真正而善良的主[^5]。
+
+[^4]: [太13:24](https://biblehub.com/matthew/13-24.htm) 耶稣告诉他们另一个比喻：“天国的国度像一个在他田地里播种好种子的人。 [25](https://biblehub.com/matthew/13-25.htm) 但在每个人睡着时，他的敌人来到并在麦子中间播种稗子，然后走开。 [26](https://biblehub.com/matthew/13-26.htm) 当麦子发芽并结穗时，那时稗子也出现了。 [27](https://biblehub.com/matthew/13-27.htm) “田主的仆人们到他那里并说，‘主人，你不是在你的田地里播种好种子吗？那么这些稗子从哪里来的呢？’ [28](https://biblehub.com/matthew/13-28.htm) “‘一个敌人做的这，’他回复。”仆人们问他，‘你要我们去将它们拔掉吗？’ [29](https://biblehub.com/matthew/13-29.htm) “‘不，’他回答，‘因为在你们拔稗子时，你们也可能将麦子与它们一同根除。 [30](https://biblehub.com/matthew/13-30.htm) 让它们同时一起生长直到丰收。在那时我会告诉收割者们：首先将稗子收集并将它们绑成捆来烧；然后将麦子聚集并将它带进我的粮仓。’”
+
+[^5]: [林前3:9](https://biblehub.com/1_corinthians/3-9.htm) 因为我们是上帝服侍中的同工；你们是上帝的田地，上帝的建筑。
