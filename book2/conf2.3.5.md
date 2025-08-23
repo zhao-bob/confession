@@ -17,7 +17,7 @@
 
 [^2]: [诗130:1](https://biblehub.com/psalms/130-1.htm) 上行的圣歌。耶和华啊，我出自诸渊向祢呼求。
 
-[^3]: [哈2:4](https://biblehub.com/habakkuk/2-4.htm) “看啊，敌人被膨胀；他的灵魂不正直---但义者由信心而活---
+[^3]: [哈2:4](https://biblehub.com/habakkuk/2-4.htm) “看啊，敌人被膨胀；他的灵魂不正直---但义者由信心而活--- [罗10:9](https://biblehub.com/romans/10-9.htm) 如果你用你的口宣告，“耶稣是主，”并在你的内心相信上帝将祂从死人苏醒，你就会被拯救。
 
 > quis enim non extollebat laudibus tunc hominem, patrem meum, quod ultra vires rei familiaris suae impenderet filio quidquid etiam longe peregrinanti studiorum causa opus esset?
 
