@@ -22,3 +22,12 @@
 [^4]: [林前3:16](https://biblehub.com/1_corinthians/3-16.htm) 你们难道不知道你们自己是上帝的神殿而那上帝的圣灵栖居在你们之中吗？ [17](https://biblehub.com/1_corinthians/3-17.htm) 如果任何人摧毁上帝的神殿，上帝会摧毁那个人；因为上帝的神殿是神圣的，而你们一起是那神殿。
 
 [^5]: [诗107:7](https://biblehub.com/psalms/107-7.htm) 祂带领他们通过一条直道到达一个他们能定居的城市。
+
+> itaque illa exilivit pia trepidatione ac tremore et, quamvis mihi nondum fideli, timuit tamen vias distortas in quibus ambulant qui ponunt ad te tergum et non faciem.
+
+因为她对此涌现出虔诚的惶恐和战栗[^6]，而尽管我尚未认信，她却为我害怕他们行走其中的那些崎岖道路，他们用背对着祢，而不是他们的脸[^7]。
+
+[^6]: [林后7:15](https://biblehub.com/2_corinthians/7-15.htm) 而当他记起你们所有人都顺服，以敬畏和战兢接收他时，他对你们的情感越发巨大。
+
+[^7]: [耶2:27](https://biblehub.com/jeremiah/2-27.htm) 他们对树木说，‘你是我的父亲，’并对石头说，‘你生了我。’他们已将他们的背转向我而不是他们的脸；而当他们在窘困中时，他们说，‘来到并拯救我们！’
+
