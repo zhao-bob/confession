@@ -9,6 +9,8 @@
 
 但没有任何一句沉降在我的内心，以致我做出行动。而她希望如此，而我记得她私下无比忧心地敦促我不要行淫乱尤其不要与有夫之妇通奸。可这警告对我如同妇人之见，而汗颜去遵从。
 
-[^1]
+> illi autem tui erant et nesciebam, et te tacere putabam atque illam loqui per quam mihi tu non tacebas, et in illa contemnebaris a me, a me, filio eius, filio ancillae tuae, servo tuo. 
 
-[^1]: [赛7:23](https://biblehub.com/isaiah/7-23.htm) 在每一个有一千棵葡萄树的地方，它们值银一千舍客勒，而在那天只会有刺蓟和荆棘。
+但这些是祢的劝告而我还不知道，我以为祢沉默了。但这些由她说出，藉着她祢并未对我静默。可在她身上祢被我藐视，被我，她的儿子，祢的侍女、祢的仆人的儿子[^1]。
+
+[^1]: [诗116:16](https://biblehub.com/psalms/116-16.htm) 耶和华啊，我实在是祢的仆人；我事奉祢正如我母亲所做的；祢已将我从我的锁链释放。
