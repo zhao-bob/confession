@@ -14,3 +14,7 @@
 但这些是祢的劝告而我还不知道，我以为祢沉默了。但这些由她说出，藉着她祢并未对我静默。可在她身上祢被我藐视，被我，她的儿子，祢的侍女、祢的仆人的儿子[^1]。
 
 [^1]: [诗116:16](https://biblehub.com/psalms/116-16.htm) 耶和华啊，我实在是祢的仆人；我事奉祢正如我母亲所做的；祢已将我从我的锁链释放。
+
+> sed nesciebam et praeceps ibam tanta caecitate ut inter coaetaneos meos puderet me minoris dedecoris, quoniam audiebam eos iactantes flagitia sua et tanto gloriantes magis, quanto magis turpes essent, et libebat facere non solum libidine facti verum etiam laudis.
+
+但我还没意识到就如此盲目地冲入危险之中，以致在我的同龄人中我为自己不是同等无耻而感到羞耻，因为我听到他们吹嘘他们自己的那些流氓行径。而这些丑恶越巨大，他们就越感到自豪，而这快感不单来自于淫欲的行为还在于由此而来的赞美。
