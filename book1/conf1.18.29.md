@@ -9,7 +9,7 @@
 
 > quasi vero quemlibet inimicum hominem perniciosius sentiat quam ipsum odium quo in eum inritatur, aut vastet quisquam persequendo alium gravius quam cor suum vastat inimicando. et certe non est interior litterarum scientia quam scripta conscientia, id se alteri facere quod nolit pati.
 
-就仿佛他真感到任何一个人类敌人都比他自身煽动他来对抗的仇恨更具毁灭性；或者比起由敌意摧毁他自身的心灵，他能通过迫害更彻底地摧毁其他任何人。而显然，没有什么知识的文字比良心的书写[^2]更与生俱来---他对他人在做自己不愿遭受的事[^3]。
+就仿佛他真感到任何一个人类敌人都比他自身煽动他来对抗的仇恨更具毁灭性；或者比起由敌意摧毁他自身的心灵，他能通过迫害更彻底地摧毁其他任何人。而显然，没有什么知识的文字比良心的书写[^2]更与生俱来，以致他会对别人做自己不愿遭受的事[^3]。
 
 [^2]: [罗2:15](https://biblehub.com/romans/2-15.htm) 他们表明律法的要求被刻在他们心上，他们的良心也在担任证人，而且他们的思想有时控告它们，而其他时候甚至捍卫它们。）
 
