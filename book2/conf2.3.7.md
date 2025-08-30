@@ -21,4 +21,4 @@
 
 > quid dignum est vituperatione nisi vitium? ego, ne vituperarer, vitiosior fiebam, et ubi non suberat quo admisso aequarer perditis, fingebam me fecisse quod non feceram, ne viderer abiectior quo eram innocentior, et ne vilior haberer quo eram castior.
 
-还有什么比恶行更配得斥责呢？可为了不被斥责，我就去做更恶劣的事：而当没有能和那些沉沦者可媲美的罪恶时，我就捏造自己做了没做过的事，以免因更加无辜而更被鄙视，因更加纯洁而被认为更懦弱。
+还有什么比恶行更配得斥责呢？可为了不被斥责，我就去做更恶劣的事：当没有能和那些沉沦者可媲美的罪恶时，我就捏造自己做了没做过的事，以免因更加无辜而更被鄙视，因更加纯洁而被认为更无用。
