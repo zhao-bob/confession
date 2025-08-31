@@ -9,11 +9,13 @@
 
 > amore amoris tui facio istuc, recolens vias meas nequissimas in amaritudine recogitationis meae, ut tu dulcescas mihi, dulcedo non fallax, dulcedo felix et secura, et conligens me a dispersione, in qua frustatim discissus sum dum ab uno te aversus in multa evanui.
 
-是因为爱祢的爱，我才这样做；在我苦涩的记忆中回想我至恶的道路，以致祢对我变得甜蜜---那是没有诡诈的甜蜜，幸福而平安的甜蜜；并将我从放荡中聚集：随着我背离独一的祢，我在其中被撕成碎片，而消失在众多之中。
+是因为爱祢的爱[^2]，我才这样做；在我苦涩的记忆中回想我至恶的道路，以致祢对我变得甜蜜---那是没有诡诈的甜蜜，幸福而平安的甜蜜；并将我从放荡中聚集：随着我背离独一的祢，我在其中被撕成碎片，而消失在众多之中。
+
+[^2]: [耶31:3](https://biblehub.com/jeremiah/31-3.htm) 耶和华在过去向我们显现，说：“我已用永久的爱爱你；我以不衰的温良牵引你。”
 
 > exarsi enim aliquando satiari inferis in adulescentia, et silvescere ausus sum variis et umbrosis amoribus, et contabuit species mea, et computrui coram oculis tuis placens mihi et placere cupiens oculis hominum.
 
-而在青年时我曾一时燃起满足低级趣味的兴致，而敢于狂奔到多变而阴郁的爱情森林。我的美貌已逐渐凋零[^2]，并在祢的瞳仁中变得腐朽，因为我取悦自己并渴望取悦人们的眼睛。
+而在青年时我曾一时燃起满足低级趣味的兴致，而敢于狂奔到多变而阴郁的爱情森林。我的美貌已逐渐凋零[^3]，并在祢的瞳仁中变得腐朽，因为我取悦自己并渴望取悦人们的眼睛。
 
-[^2]: [但10:8](https://biblehub.com/danial/10-8.htm) 所以我被单独留下，凝望这伟大的异象；我没有力量剩下，我的脸转为死般苍白，而我无能为力。
+[^3]: [但10:8](https://biblehub.com/danial/10-8.htm) 所以我被单独留下，凝望这伟大的异象；我没有力量剩下，我的脸转为死般苍白，而我无能为力。
 
