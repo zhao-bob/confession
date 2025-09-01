@@ -17,6 +17,10 @@
 
 > non enim et illa quae iam de medio Babylonis fugerat, sed ibat in ceteris eius tardior, mater carnis meae, sicut monuit me pudicitiam, ita curavit quod de me a viro suo audierat, iamque pestilentiosum et in posterum periculosum sentiebat cohercere termino coniugalis affectus, si resecari ad vivum non poterat.
 
-而我肉体的母亲虽已逃离巴比伦的中心[^4]，却更缓慢地向它的外围徘徊，正如她已警告我要保持纯洁，却如此不关注从自己的丈夫听说的关于我的事情：她感知到它现在的危害和未来的危险，而如果它不能连根拔除，就当用婚姻情感的界限加以约束。
+而我肉体的母亲虽已逃离巴比伦的中心[^4]，却更缓慢地向它的外围徘徊，正如她已警告我要保持纯洁，却如此不关注从自己的丈夫听说的关于我的事情：她感知到它现在的危害和未来的危险，而如果它不能连根拔除，就当用婚姻情感的限制加以约束。
 
 [^4]: [耶51:6](https://biblehub.com/jeremiah/51-6.htm) “从巴比伦逃离！为你们的生命逃跑！不要因为她的罪恶而被摧毁。这是耶和华报仇的时间；祂会以她应得的报应她。
+
+> non curavit hoc, quia metus erat ne impediretur spes mea compede uxoria, non spes illa quam in te futuri saeculi habebat mater, sed spes litterarum, quas ut nossem nimis volebat parens uterque, ille quia de te prope nihil cogitabat, de me autem inania, illa autem quia non solum nullo detrimento sed etiam nonnullo adiumento ad te adipiscendum futura existimabat usitata illa studia doctrinae. ita enim conicio, recolens ut possum mores parentum meorum.
+
+她未曾关注这，因为她担心恐怕婚姻的枷锁会阻碍我的前程。这前程不是母亲在祢里面拥有的未来世代，而是文化学习的前程，这是父母二人都非常期待让我取得的：我的父亲因为几乎不为祢着想，他为我着想的不过是虚空；而我的母亲认为常规的这些教育学习不仅没有危害，反而会为我将来抵达祢带来不小的促进。而这是我在回忆中尽我所能对我父母习性的猜测。
