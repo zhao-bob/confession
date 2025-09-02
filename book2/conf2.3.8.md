@@ -23,4 +23,10 @@
 
 > non curavit hoc, quia metus erat ne impediretur spes mea compede uxoria, non spes illa quam in te futuri saeculi habebat mater, sed spes litterarum, quas ut nossem nimis volebat parens uterque, ille quia de te prope nihil cogitabat, de me autem inania, illa autem quia non solum nullo detrimento sed etiam nonnullo adiumento ad te adipiscendum futura existimabat usitata illa studia doctrinae. ita enim conicio, recolens ut possum mores parentum meorum.
 
-她未曾关注这，因为她担心恐怕婚姻的枷锁会阻碍我的前程。这前程不是母亲在祢里面拥有的未来世代，而是文化学习的前程，这是父母二人都非常期待让我取得的：我的父亲因为几乎不为祢着想，他为我着想的不过是虚空；而我的母亲认为常规的这些教育学习不仅没有危害，反而会为我将来抵达祢带来不小的促进。而这是我在回忆中尽我所能对我父母习性的猜测。
+她却未曾关注这，因为她担心以免婚姻的枷锁会阻碍我的前程。这前程不是母亲在祢里面拥有的未来世代，而是文化学习的前程，这是父母二人都非常期待让我取得的：我的父亲因为几乎不为祢着想，他为我着想的不过是虚空；而我的母亲认为常规的这些教育学习不仅没有危害，反而会为我将来抵达祢带来不小的促进。而这是我在回忆中尽我所能对我父母习性的猜测。
+
+> relaxabantur etiam mihi ad ludendum habenae ultra temperamentum severitatis in dissolutionem affectionum variarum, et in omnibus erat caligo intercludens mihi, deus meus, serenitatem veritatis tuae, et prodiebat tamquam ex adipe iniquitas mea.
+
+同时，我身上的缰绳被松弛以致我能肆意玩耍，超越适当的严厉，瓦解在无常的情感中，而在这一切中都有雾霾向我阻隔，我的上帝啊，祢真理的晴和，而我的罪邪仿佛从它们的浓烈中萌发[^5]。
+
+[^5]: [诗73:7](https://biblehub.com/psalms/73-7.htm) 罪邪从他们的繁荣中发出；他们内心的想象肆意撒野。
