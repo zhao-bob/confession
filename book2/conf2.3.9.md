@@ -12,3 +12,7 @@
 > quis enim fur aequo animo furem patitur? nec copiosus adactum inopia.et ego furtum facere volui et feci, nulla compulsus egestate nisi penuria et fastidio iustitiae et sagina iniquitatis.
 
 而什么盗贼能以平静的心灵容忍另一个盗贼呢？即使富有者也不容忍贫穷者的偷盗行为。可我却欲想行窃并已犯下盗窃，不是受任何物质贫困的驱使，而是内心的匮乏、对公义的厌倦以及对罪邪的娇纵。
+
+> nam id furatus sum quod mihi abundabat et multo melius, nec ea re volebam frui quam furto appetebam, sed ipso furto et peccato.
+
+因为我偷的那些东西是我大量拥有的并且我已有的品质更好。而我渴望享用的不是由偷盗所获得的赃物，却是偷盗和犯罪本身。
