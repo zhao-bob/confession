@@ -23,4 +23,6 @@
 
 > ad hanc excutiendam atque asportandam nequissimi adulescentuli perreximus nocte intempesta (quousque ludum de pestilentiae more in areis produxeramus) et abstulimus inde onera ingentia, non ad nostras epulas sed vel proicienda porcis, etiamsi aliquid inde comedimus, dum tamen fieret a nobis quod eo liberet quo non liceret.
 
-我们这群无法无天的少年在一个夜深人静的晚上动手将树上的果实摇下并带走（依我们的不良习惯我们一直在那区域玩耍直到深夜）。于是我们拿走了一大堆梨子，不是作为我们的夜宵却是将它们丢弃喂猪。即使我们吃掉了一些，可其中使我们愉悦的却是做明令禁止的事情。
+我们这群无法无天的少年在一个夜深人静的晚上动手将树上的果实摇下并带走（依我们的不良习惯我们一直在那区域玩耍直到深夜）。于是我们拿走了一大堆梨子，不是作为我们的夜宵却是将它们丢给猪[^3]。即使我们吃掉了一些，可其中使我们愉悦的却是做明令禁止的事情。
+
+[^3]: [太7:6](https://biblehub.com/matthew/7-6.htm) “不要将奉神的东西给狗；不要将你们的珍珠扔给猪。如果你们如此，他们可能在他们脚下践踏它们，并转身将你们撕成碎片。
