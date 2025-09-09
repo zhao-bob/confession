@@ -3,7 +3,7 @@
 
 > recordari volo transactas foeditates meas et carnales corruptiones animae meae, non quod eas amem, sed ut amem te, deus meus.
 
-我打算回顾我过去的污秽和我灵魂肉欲的败坏[^1]，不是因为我爱这些，而是为使我爱祢，我的上帝。
+我打算回顾我过去的卑污和我灵魂肉欲的败坏[^1]，不是因为我爱这些，而是为使我爱祢，我的上帝。
 
 [^1]: [彼后2:10](https://biblehub.com/2_peter/2-10.htm) 这对那些跟随肉体败坏欲望和鄙视权威的人尤其真实。他们大胆而自傲，而不害怕诋毁属天存有； [罗8:5](https://biblehub.com/romans/8-5.htm) 那些按照肉体生活的人将他们的心灵安置在肉体所渴望的之上；但那些依照圣灵生活的人将他们的心灵安置在圣灵所渴望的之上。
 

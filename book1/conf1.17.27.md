@@ -29,7 +29,7 @@
 
 > laudes tuae, domine, laudes tuae per scripturas tuas suspenderent palmitem cordis mei, et non raperetur per inania nugarum turpis praeda volatilibus. non enim uno modo sacrificatur transgressoribus angelis.
 
-祢的赞美，主啊，祢的赞美本应藉着祢的经文撑起我内心的枝蔓[^2]，它就不会被空虚的琐事掠去，而成为飞鸟可耻的猎物。而向堕落天使献祭的方式不止一种。
+祢的赞美，主啊，祢的赞美本应藉着祢的经文撑起我内心的枝蔓[^2]，它就不会被空虚的琐事掠去，而成为飞鸟丑鄙的猎物。而向堕落天使献祭的方式不止一种。
 
 [^2]: [约15:4](https://biblehub.com/john/15-4.htm) 留存在我里面，如同我也留存在你们里面。没有树枝能由它自己结果实；它必须留存在葡萄树上。除非你们留存在我里面，否则你们也不能结果实。
 

@@ -17,7 +17,7 @@
 
 > nam in illis iam quid me foedius fuit, ubi etiam talibus displicebam fallendo innumerabilibus mendaciis et paedagogum et magistros et parentes amore ludendi, studio spectandi nugatoria et imitandi ludicra inquietudine? 
 
-因为在祢眼中，什么比我已所是的更卑劣的呢？其中我还以无数的谎言欺骗我的书仆、老师和父母，而使这些人不悦---只因对游戏的热爱，对轻浮演出的狂热以及对舞台剧模仿的躁动。
+因为在祢眼中，什么比我已所是的更卑污的呢？其中我还以无数的谎言欺骗我的书仆、老师和父母，而使这些人不悦---只因对游戏的热爱，对轻浮演出的狂热以及对舞台剧模仿的躁动。
 
 > furta etiam faciebam de cellario parentum et de mensa, vel gula imperitante vel ut haberem quod darem pueris ludum suum mihi quo pariter utique delectabantur tamen vendentibus.
 

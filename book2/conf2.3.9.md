@@ -27,6 +27,12 @@
 
 [^3]: [太7:6](https://biblehub.com/matthew/7-6.htm) “不要将奉神的东西给狗；不要将你们的珍珠扔给猪。如果你们如此，他们可能在他们脚下践踏它们，并转身将你们撕成碎片。
 
-> ecce cor meum, deus, ecce cor meum, quod miseratus es in imo abyssi. dicat tibi nunc, ecce cor meum, quid ibi quaerebat, ut essem gratis malus et malitiae meae causa nulla esset nisi malitia.
+> ecce cor meum, deus, ecce cor meum, quod miseratus es in imo abyssi. dicat tibi nunc, ecce cor meum, quid ibi quaerebat, ut essem gratis malus et malitiae meae causa nulla esset nisi malitia. foeda erat, et amavi eam.
 
-看看我的内心，上帝啊，请看看我的内心，祢对在诸渊至深处的它也是怜悯的。现在它对祢说，请看看我的内心，它在那里寻求为何我无故变得邪恶，可除了邪恶本身，没有任何是我邪恶的原因。
+看看我的内心，上帝啊，请看看我的内心，祢对在诸渊至深处的它也是怜悯的。现在它对祢说，请看看我的内心，它在那里寻求为何我无故变得邪恶。可除了邪恶本身，没有任何是我邪恶的原因。它是卑污的，可那时我爱它。
+
+> amavi perire, amavi defectum meum, non illud ad quod deficiebam, sed defectum meum ipsum amavi, turpis anima et dissiliens a firmamento tuo in exterminium, non dedecore aliquid, sed dedecus appetens.
+
+那时我爱消亡，爱我的沉沦，不是那我为之沉沦之物，而是爱我的沉沦本身。我丑鄙的灵魂，远离祢的支柱[^4]而崩裂在灭绝中，不是借着无耻追寻什么，而是追寻无耻本身。
+
+[^4]: [诗71:3](https://biblehub.com/psalms/71-3.htm) 成为我避难的岩石，让我总能进入其中；赐与命令来拯救我，因为祢是我的岩石和我的城堡。
