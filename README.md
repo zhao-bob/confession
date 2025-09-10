@@ -59,3 +59,5 @@
 ### [第二章 2. 2. 2](https://zhao-bob.github.io/confession/book2/conf2.2.2)、[2. 2. 3](https://zhao-bob.github.io/confession/book2/conf2.2.3)、[2. 2. 4](https://zhao-bob.github.io/confession/book2/conf2.2.4)
 
 ### [第三章 2. 3. 5](https://zhao-bob.github.io/confession/book2/conf2.3.5)、[2. 3. 6](https://zhao-bob.github.io/confession/book2/conf2.3.6)、[2. 3. 7](https://zhao-bob.github.io/confession/book2/conf2.3.7)、[2. 3. 8](https://zhao-bob.github.io/confession/book2/conf2.3.8)
+
+### [第四章 2. 4. 9](https://zhao-bob.github.io/confession/book2/conf2.3.9)
