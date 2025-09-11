@@ -9,7 +9,7 @@
 
 > at enim vela pendent liminibus grammaticarum scholarum, sed non illa magis honorem secreti quam tegimentum erroris significant.
 
-诚然，文法学校的入口处挂着一层遮幔，但与其说这象征精英教育的荣耀，不如说是一种谬误的遮盖。
+诚然，文法学校的入口处挂着一层遮幔，但与其说这象征精英教育的荣光，不如说是一种谬误的遮盖。
 
 > non clament adversus me quos iam non timeo, dum confiteor tibi quae vult anima mea, deus meus, et adquiesco in reprehensione malarum viarum mearum, ut diligam bonas vias tuas, non clament adversus me venditores grammaticae vel emptores, quia, si proponam eis interrogans, utrum verum sit quod Aenean aliquando Carthaginem venisse poeta dicit, indoctiores nescire se respondebunt, doctiores autem etiam negabunt verum esse.
 
