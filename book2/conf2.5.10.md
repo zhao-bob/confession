@@ -7,5 +7,7 @@
 
 > habet etiam honor temporalis et imperitandi atque superandi potentia suum decus, unde etiam vindictae aviditas oritur, et tamen in cuncta haec adipiscenda non est egrediendum abs te, domine, neque deviandum a lege tua.
 
-属世的荣誉、统治与征服的权柄也有其自身的尊荣，而据为己有的贪心也从其中涌现，
+属世的荣誉、统治与征服的权柄也有其自身的尊荣，而据为己有的贪心也从其中涌现，但主啊，对所有这些的攫取都不能背离祢，也不能脱离祢的律法。
+
+> et vita quam hic vivimus habet inlecebram suam propter quendam modum decoris sui et convenientiam cum his omnibus infimis pulchris. amicitia quoque hominum caro nodo dulcis est propter unitatem de multis animis.
 
