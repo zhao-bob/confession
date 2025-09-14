@@ -11,3 +11,7 @@
 
 > et vita quam hic vivimus habet inlecebram suam propter quendam modum decoris sui et convenientiam cum his omnibus infimis pulchris. amicitia quoque hominum caro nodo dulcis est propter unitatem de multis animis.
 
+而我们活在这世上的生命有它自身的魅力，因为某种模式在它自身的美貌，和与这地上美丽万物的协调中。属肉体的人类友谊同样是甜蜜的交织，因为出自多个灵魂的合一。
+
+> propter universa haec atque huius modi peccatum admittitur, dum immoderata in ista inclinatione, cum extrema bona sint, meliora et summa deseruntur, tu, domine deus noster, et veritas tua, et lex tua.
+
