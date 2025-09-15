@@ -15,3 +15,5 @@
 
 > propter universa haec atque huius modi peccatum admittitur, dum immoderata in ista inclinatione, cum extrema bona sint, meliora et summa deseruntur, tu, domine deus noster, et veritas tua, et lex tua.
 
+因为其中每一个人以及他们之间的模式都接纳罪恶，只要其中存在对最低等次的善无节制的倾向，而抛弃更高和至高的善，和祢，我们的主上帝啊，以及祢的真理和祢的律法。
+
