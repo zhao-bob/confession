@@ -21,7 +21,7 @@
 
 > habent enim et haec ima delectationes, sed non sicut deus meus, qui fecit omnia, quia in ipso delectatur iustus, et ipse est deliciae rectorum corde.
 
-的确，最底层的这些也拥有它们的快乐，但它们不像我的上帝---祂已制造万物，因为在祂自身中已使义人喜悦，而祂自身就是内心正直的人的乐享[^2]。
+的确，最底层的这些也拥有它们的快乐，但无法与我的上帝媲美---而祂已制造万物，因为义人已在祂里面得享喜悦，而祂本身就是内心正直的人的乐享[^2]。
 
 [^2]: [诗64:10](https://biblehub.com/psalms/64-10.htm) 义人将在耶和华中欣喜并在祂里面避难；所有内心正直的人会在祂里面荣耀！
 
