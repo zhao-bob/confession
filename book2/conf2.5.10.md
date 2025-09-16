@@ -15,5 +15,17 @@
 
 > propter universa haec atque huius modi peccatum admittitur, dum immoderata in ista inclinatione, cum extrema bona sint, meliora et summa deseruntur, tu, domine deus noster, et veritas tua, et lex tua.
 
-因为其中每一个人以及他们之间的模式都接纳罪恶，只要其中存在对最低等次的善无节制的倾向，而抛弃更高和至高的善，和祢，我们的主上帝啊，以及祢的真理和祢的律法。
+因为其中每一个人以及他们之间的模式都接纳罪恶，只要其中存在对最低等次的善无节制的倾向，而抛弃更高与至高的善，以及祢，我们的主上帝啊，和祢的真理和祢的律法[^1]。
+
+[^1]: [诗119:142](https://biblehub.com/psalms/119-142.htm) 祢的正义永久而祢的律法永真。
+
+> habent enim et haec ima delectationes, sed non sicut deus meus, qui fecit omnia, quia in ipso delectatur iustus, et ipse est deliciae rectorum corde.
+
+的确，最底层的这些也拥有它们的快乐，但它们不像我的上帝---祂已制造万物，因为在祂自身中已使义人喜悦，而祂自身就是内心正直的人的乐享[^2]。
+
+[^2]: [诗64:10](https://biblehub.com/psalms/64-10.htm) 义人将在耶和华中欣喜并在祂里面避难；所有内心正直的人会在祂里面荣耀！
+
+
+
+
 
