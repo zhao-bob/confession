@@ -7,7 +7,12 @@
 
 > pulchra sunt enim et decora, quamquam prae bonis superioribus et beatificis abiecta et iacentia.
 
-即使它们确实美丽而标致，可在更高而更福乐的善面前却是可鄙而低贱的。
+即使它们确实美丽而貌美，可在更高而更福乐的善面前却是可鄙而低贱的。
+
+> homicidium fecit. cur fecit? adamavit eius coniugem aut praedium, aut voluit depraedari unde viveret, aut timuit ab illo tale aliquid amittere, aut laesus ulcisci se exarsit.
+
+人犯谋杀，而他为何要犯呢？或者他已堕入对他人妻子或财产的情欲之中，或者已欲想以掠夺为生<!-- 为自己的生活而掠夺他们 -->，或者某种程度上已害怕会因此而失去这些，或者因受伤而燃起自身复仇的火焰。
+
 
 [^1]。
 
