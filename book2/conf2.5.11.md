@@ -11,8 +11,11 @@
 
 > homicidium fecit. cur fecit? adamavit eius coniugem aut praedium, aut voluit depraedari unde viveret, aut timuit ab illo tale aliquid amittere, aut laesus ulcisci se exarsit.
 
-人犯谋杀，而他为何要犯呢？或者他已堕入对他人妻子或财产的情欲之中，或者已欲想以掠夺为生<!-- 为自己的生活而掠夺他们 -->，或者某种程度上已害怕会因此而失去这些，或者因受伤而燃起自身复仇的火焰。
+人犯谋杀，而他为何要犯呢？或者他已堕入对他人妻子或财产的情欲之中，或者已欲想以掠夺为生<!-- 为自己的生活而掠夺他们 -->，或者害怕因对方而失去某些东西，或者因受伤而燃起自身复仇的火焰。
 
+> num homicidium sine causa faceret ipso homicidio delectatus? quis crediderit? 
+
+是否人犯谋杀没有缘由，只是他自己以杀人为乐？而谁相信这呢？
 
 [^1]。
 
