@@ -11,4 +11,9 @@
 
 > pulchra erant poma illa quae furati sumus, quoniam creatura tua erat, pulcherrime omnium, creator omnium, deus bone, deus summum bonum et bonum verum meum.
 
-我们偷窃的那些果实是美丽的，因为它是祢的造物，而祢是万有中的至美，万物的造主，拥有善的上帝，拥有至高善和我的真善的上帝。
+我们偷窃的那些果实是美丽的，因为它是祢的造物，而祢是万有中的至美，万物的造主，拥有善的上帝---上帝是至高之善和我的真善。
+
+> pulchra erant illa poma, sed non ipsa concupivit anima mea miserabilis. erat mihi enim meliorum copia, illa autem decerpsi tantum ut furarer. nam decerpta proieci, epulatus inde solam iniquitatem qua laetabar fruens.
+
+那些果实是美丽的，但我可悲的灵魂对其本身并不热望。因为我有大量比这些更好的，我摘光它们仅仅是为了偷盗。从而我摘掉并扔掉它们，我唯一的盛宴就是我欢然享受的罪邪。
+
