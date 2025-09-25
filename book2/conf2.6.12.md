@@ -17,3 +17,7 @@
 
 那些果实是美丽的，但我可悲的灵魂对其本身并不热望。因为我有大量比这些更好的，我摘光它们仅仅是为了偷盗。从而我摘掉并扔掉它们，我唯一的盛宴就是我欢然享受的罪邪。
 
+> nam et si quid illorum pomorum intravit in os meum, condimentum ibi facinus erat.
+
+而假如那些果实的任何一个进入我的嘴，其中的佐料就是那罪行。
+
