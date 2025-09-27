@@ -17,6 +17,6 @@
 
 > o tardum gaudium meum! tacebas tunc, et ego ibam porro longe a te in plura et plura sterilia semina dolorum superba deiectione et inquieta lassitudine.
 
-我迟来的喜乐啊!那时祢静默不语，而我走得离祢越来越远，并以高傲的消沉和不安歇的疲倦成为越来越贫乏的忧伤种子[^2]。
+我迟来的喜乐啊！那时祢静默不语，而我走得离祢越来越远，并以高傲的消沉和不安歇的疲倦成为越来越贫乏的忧伤种子[^2]。
 
 [^2]: [可4:18](https://biblehub.com/mark/4-18.htm) 还有其他人，像播种在荆棘中间的种子，听见这言； [19](https://biblehub.com/mark/4-19.htm) 但此生的忧虑，钱财的欺诈和其他东西的欲望进到里面而将这言窒息，使它变得不结果实。
