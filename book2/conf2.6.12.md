@@ -23,5 +23,5 @@
 
 > et nunc, domine deus meus, quaero quid me in furto delectaverit, et ecce species nulla est: non dico sicut in aequitate atque prudentia, sed neque sicut in mente hominis atque memoria et sensibus et vegetante vita, neque sicut speciosa sunt sidera et decora locis suis et terra et mare plena fetibus, qui succedunt nascendo decedentibus -- non saltem ut est quaedam defectiva species et umbratica vitiis fallentibus.
 
-而现在，主我的上帝啊，我寻求是什么使我以偷盗为乐，且看啊，它毫无外形：我是说这外形不像在公义和睿智中那样，但也不像在人的心灵、记忆、感觉和生命的活力中那样，也不像星宿在自身位置上美丽夺目那样，或是像大地和海洋充盈新生---它们诞生而接替衰亡的，甚至也不是某种欠缺而活在黑暗中诱骗人犯罪的外形。
+而现在，主我的上帝啊，我寻求是什么使我以偷盗为乐。且看啊，它毫无外形：我是说这外形不像在公义和睿智中那样，但也不像在人的心灵、记忆、感觉和生命的活力中那样，也不像星宿在自身位置上美丽夺目那样，或是像大地和海洋充盈新生---它们诞生而接替衰亡的，甚至也不是某种欠缺而活在黑暗中诱骗人犯罪的外形。
 
