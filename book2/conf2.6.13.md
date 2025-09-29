@@ -15,4 +15,6 @@
 
 而轻佻的爱语企图获得爱：但没有什么比祢的博爱更抚慰，也没有任何爱的对象比祢的真理更健康，而它的美丽和光明在万物以先。
 
+> et curiositas affectare videtur studium scientiae, cum tu omnia summe noveris. ignorantia quoque ipsa atque stultitia simplicitatis et innocentiae nomine tegitur, quia te simplicius quicquam non reperitur.
 
+而好奇心被视为求知欲的动力，而祢才至高无上地知晓万物。无知与愚蠢本身被掩盖在单纯和无辜的名下，因为找不到任何比祢更纯一。
