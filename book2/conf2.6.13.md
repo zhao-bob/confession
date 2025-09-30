@@ -18,3 +18,7 @@
 > et curiositas affectare videtur studium scientiae, cum tu omnia summe noveris. ignorantia quoque ipsa atque stultitia simplicitatis et innocentiae nomine tegitur, quia te simplicius quicquam non reperitur.
 
 而好奇心被视为求知欲的动力，而祢才至高无上地知晓万物。无知与愚蠢本身被掩盖在单纯和无辜的名下，因为找不到任何比祢更纯一。
+
+> quid te autem innocentius, quandoquidem opera sua malis inimica sunt? et ignavia quasi quietem appetit: quae vero quies certa praeter dominum?
+
+而既然是由罪人的行为给自身带来伤害，那什么比祂更无辜呢？而怠惰假装渴求安息：除主以外哪有真正确定的安息？
