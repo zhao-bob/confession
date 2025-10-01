@@ -17,8 +17,12 @@
 
 > et curiositas affectare videtur studium scientiae, cum tu omnia summe noveris. ignorantia quoque ipsa atque stultitia simplicitatis et innocentiae nomine tegitur, quia te simplicius quicquam non reperitur.
 
-而好奇心被视为求知欲的动力，而祢才至高无上地知晓万物。无知与愚蠢本身被掩盖在单纯和无辜的名下，因为找不到任何比祢更纯一。
+而好奇心被视为求知欲的动力，而祢才至高无上地知晓万物。无知与愚蠢本身被掩藏在单纯和无辜的名下，可找不到任何比祢更纯一。
 
 > quid te autem innocentius, quandoquidem opera sua malis inimica sunt? et ignavia quasi quietem appetit: quae vero quies certa praeter dominum?
 
 而既然是由罪人的行为给自身带来伤害，那什么比祂更无辜呢？而怠惰假装渴求安息：除主以外哪有真正确定的安息？
+
+> luxuria satietatem atque abundantiam se cupit vocari: tu es autem plenitudo et indeficiens copia incorruptibilis suavitatis. effusio liberalitatis obtendit umbram: sed bonorum omnium largitor affluentissimus tu es.
+
+奢侈希望自己被称为饱足和丰盛：但祢才是圆满和永不败坏甜蜜的不衰供给。挥霍隐藏在慷慨的影子中：但祢才是万善至丰溢的赐予者。
