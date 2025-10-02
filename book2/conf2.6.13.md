@@ -35,7 +35,7 @@
 
 > timor insolita et repentina exhorrescit rebus quae amantur adversantia, dum praecavet securitati: tibi enim quid insolitum? quid repentinum? aut quis a te separat quod diligis? aut ubi nisi apud te firma securitas?
 
-恐惧颤栗于被爱之物变得反常与突然，而在意它们的平安：可对祢什么是反常的？什么是突然的？或者谁能将祢钟爱的与祢分离[^3]？或者除非与祢同在哪里会是坚固的平安？
+恐惧颤栗于被爱之物变得反常与突然，而在意它们的平安：可对祢什么是反常的？什么是突然的？或者谁能将祢钟爱的与祢分离[^3]？或者除非与祢同在，哪里会有坚固的平安？
 
 [^3]: [罗8:35](https://biblehub.com/romans/8-35.htm) 谁会使我们与基督的爱分离？会是烦恼、艰难、迫害、饥荒、裸露、危险或刀剑吗？
 
