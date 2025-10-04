@@ -3,7 +3,7 @@
 
 > ita fornicatur anima, cum avertitur abs te et quaerit extra te ea quae pura et liquida non invenit, nisi cum redit ad te.
 
-就这样，当灵魂被转离祢而在祢之外寻求时，她就被犯淫邪[^1]，而她就发现不了纯净而清洁之物，除非当她回归祢。
+就这样，当灵魂被转离祢而在祢之外寻求时，就使她犯淫邪[^1]，而她就发现不了纯净而清洁之物，除非当她回归祢。
 
 [^1]: [诗73:27](https://biblehub.com/psalms/73-27.htm) 那些远离祢的会灭亡；祢摧毁所有对祢不忠的。
 
