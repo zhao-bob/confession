@@ -9,8 +9,8 @@
 
 [^2]: [诗54:6](https://biblehub.com/psalms/54-6.htm) 我会向祢献祭自愿的供品；我会赞美祢的名，耶和华啊，因为，它是善的。
 
-> gratiae tuae deputo et misericordiae tuae quod peccata mea tanquam glaciem solvisti. gratiae tuae deputo et quaecumque non feci mala.
+> gratiae tuae deputo et misericordiae tuae quod peccata mea tanquam glaciem solvisti. gratiae tuae deputo et quaecumque non feci mala. quid enim non facere potui, qui etiam gratuitum facinus amavi?
 
-我的罪恶就像冰一样消释[^3]，我将其归功于祢的恩典和祢的宽恕。而无论任何我未完成的恶事，我也将其归功于祢的恩典。
+我的罪恶就像冰一样消释[^3]，我将其归功于祢的恩典和祢的宽恕。而无论任何我未完成的恶事，我也将其归功于祢的恩典。因为作为一个爱无端犯罪的人，我还有什么不能做呢？
 
 [^3]: [伯24:19](https://biblehub.com/job/24-19.htm) 如热和干旱攫走融化的雪，阴间也攫走那些已犯罪恶的人。（如果你的罪不被祂消除，那么你将在地狱中被消除。）
