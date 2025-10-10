@@ -14,3 +14,11 @@
 我的罪恶就像冰一样消释[^3]，我将其归功于祢的恩典和祢的宽恕。而无论任何我未完成的恶事，我也将其归功于祢的恩典。因为作为一个爱无端犯罪的人，我还有什么不能做呢？
 
 [^3]: [伯24:19](https://biblehub.com/job/24-19.htm) 如热和干旱攫走融化的雪，阴间也攫走那些已犯罪恶的人。（如果你的罪不被祂消除，那么你将在地狱中被消除。）
+
+> et omnia mihi dimissa esse fateor, et quae mea sponte feci mala et quae te duce non feci.
+
+而祢对我饶恕我所承认的一切：既有我故意犯下的恶行，还有由祢的引领而未犯下的。
+
+> quis est hominum qui suam cogitans infirmitatem audet viribus suis tribuere castitatem atque innocentiam suam, ut minus amet te, quasi minus ei necessaria fuerit misericordia tua, qua donas peccata conversis ad te?
+
+什么样的人在思虑他自身的软弱时，敢将他自身的纯洁和无辜归为自身的能力，以致他就能爱祢少一点，于是祢恩赐给皈依祢的罪人的宽恕对他就不那么需要了？
