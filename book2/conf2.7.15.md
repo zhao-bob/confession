@@ -21,4 +21,6 @@
 
 > quis est hominum qui suam cogitans infirmitatem audet viribus suis tribuere castitatem atque innocentiam suam, ut minus amet te, quasi minus ei necessaria fuerit misericordia tua, qua donas peccata conversis ad te?
 
-什么样的人在思虑他自身的软弱时，敢将他自身的纯洁和无辜归为自身的能力，以致他就能爱祢少一点，于是祢恩赐给皈依祢的罪人的宽恕对他就不那么需要了？
+什么样的人在思虑他自身的软弱时，敢将他自身的纯洁和无辜归为自身的能力，以致他就能爱祢少一点，于是祢恩赐给向祢回转的罪人[^4]的宽恕对他就不那么需要了？
+
+[^4]: [诗51:13](https://biblehub.com/psalm/51-13.htm) 于是我会教导违犯者祢的道路，以使罪人会向祢回转。
