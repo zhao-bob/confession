@@ -21,6 +21,10 @@
 
 > quis est hominum qui suam cogitans infirmitatem audet viribus suis tribuere castitatem atque innocentiam suam, ut minus amet te, quasi minus ei necessaria fuerit misericordia tua, qua donas peccata conversis ad te?
 
-什么样的人在思虑他自身的软弱时，敢将他自身的纯洁和无辜归为自身的能力，以致他就能爱祢少一点，于是祢恩赐给向祢回转的罪人[^4]的宽恕对他就不那么需要了？
+什么人在思虑他自身的软弱时，敢将他自身的纯洁和无辜归为自身的能力，以致他就能爱祢少一点，于是祢恩赐给向祢回转的罪人[^4]的宽恕对他就不那么需要了？
 
-[^4]: [诗51:13](https://biblehub.com/psalm/51-13.htm) 于是我会教导违犯者祢的道路，以使罪人会向祢回转。
+[^4]: [诗51:13](https://biblehub.com/psalm/51-13.htm) 于是我会教导违犯者祢的道路，以致罪人会向祢回转。
+
+> qui enim vocatus a te secutus est vocem tuam et vitavit ea quae me de me ipso recordantem et fatentem legit, non me derideat ab eo medico aegrum sanari a quo sibi praestitum est ut non aegrotaret, vel potius ut minus aegrotaret, et ideo te tantundem, immo vero amplius diligat, quia per quem me videt tantis peccatorum meorum languoribus exui, per eum se videt tantis peccatorum languoribus non implicari.
+
+而任何被祢召唤、跟从祢话音、读到我的这些关于我自身追忆与坦白并避免它们的人，不要笑话我这个病人被这位医生治愈---祂对病人的救护不是使他不生病，而是使他少生病。也因此让他尽可能、更确切地说是更加爱祢，因为藉着祢，他看见我对罪恶如此大的虚弱被褪去，而藉此，他就能看见他自己也不会被对罪恶如此大的虚弱纠缠。
