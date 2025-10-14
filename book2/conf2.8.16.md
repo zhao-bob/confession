@@ -9,4 +9,12 @@
 
 > et tamen solus id non fecissem (sic recordor animum tunc meum), solus omnino id non fecissem. ergo amavi ibi etiam consortium eorum cum quibus id feci.
 
-而尽管如此，我未曾独自偷盗，而且我回想那时我的全部记忆，我绝对从未独自做此。因此当我们偷盗时，我也在其中爱与这些人的友谊。
+而尽管如此，我未曾独自偷盗，而且我回想那时我的全部记忆，我绝对从未独自做此。因此当我同这些人偷盗时，我也在其中爱与他们的情谊。
+
+> non ergo nihil aliud quam furtum amavi? immo vero nihil aliud, quia et illud nihil est. quid est re vera? (quis est qui doceat me, nisi qui inluminat cor meum et discernit umbras eius?)
+
+那么我还爱偷盗以外之物？但千真万确别无他物，因为那情谊也是无物。那它究竟是什么？（谁能教导我它是什么？除非他能点亮我的内心[^2]并分辨其中的阴影[^3]。）
+
+[^2]: [弗1:18](https://biblehub.com/ephesians/1-18.htm) 我祷告你们心的眼睛能被启迪，为使你们明白祂已召唤你们所至的希望，在祂神圣的子民中祂荣耀的遗产的丰富， [约1:9](https://biblehub.com/john/1-9.htm) 那赐给每个人光明的真光正来到世界里面。
+
+[^3]: [创1:4](https://biblehub.com/genesis/1-4.htm) 上帝看见那光是好的，祂就将那光与黑暗分离。
