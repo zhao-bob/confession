@@ -13,8 +13,12 @@
 
 > non ergo nihil aliud quam furtum amavi? immo vero nihil aliud, quia et illud nihil est. quid est re vera? (quis est qui doceat me, nisi qui inluminat cor meum et discernit umbras eius?)
 
-那么我还爱偷盗以外之物？但千真万确别无他物，因为那情谊也是无物。那它究竟是什么？（谁能教导我它是什么？除非他能点亮我的内心[^2]并分辨其中的阴影[^3]。）
+那么我还爱偷盗以外之物？但千真万确别无他物，因为那情谊也是无物。那它究竟是什么？谁能教导我它是什么？除非他能点亮我的内心[^2]并分辨其中的阴影[^3]。
 
 [^2]: [弗1:18](https://biblehub.com/ephesians/1-18.htm) 我祷告你们心的眼睛能被启迪，为使你们明白祂已召唤你们所至的希望，在祂神圣的子民中祂荣耀的遗产的丰富， [约1:9](https://biblehub.com/john/1-9.htm) 那赐给每个人光明的真光正来到世界里面。
 
 [^3]: [创1:4](https://biblehub.com/genesis/1-4.htm) 上帝看见那光是好的，祂就将那光与黑暗分离。
+
+> quid est? quod mihi venit in mentem quaerere et discutere et considerare, quia si tunc amarem poma illa quae furatus sum et eis frui cuperem, possem etiam solus;
+
+那它是什么？它进入我的心灵搜寻并探讨并沉思，因为假如那时我爱那被偷的果实并渴望享受它们，我就能会独自偷盗；
