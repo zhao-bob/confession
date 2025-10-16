@@ -19,6 +19,8 @@
 
 [^3]: [创1:4](https://biblehub.com/genesis/1-4.htm) 上帝看见那光是好的，祂就将那光与黑暗分离。
 
-> quid est? quod mihi venit in mentem quaerere et discutere et considerare, quia si tunc amarem poma illa quae furatus sum et eis frui cuperem, possem etiam solus;
+> quid est? quod mihi venit in mentem quaerere et discutere et considerare, quia si tunc amarem poma illa quae furatus sum et eis frui cuperem, possem etiam solus; si satis esset committere illam iniquitatem qua pervenirem ad voluptatem meam, nec confricatione consciorum animorum accenderem pruritum cupiditatis meae.
 
-那它是什么？它进入我的心灵搜寻并探讨并沉思，因为假如那时我爱那被偷的果实并渴望享受它们，我就能会独自偷盗；
+it is enough to commit that iniquity that I come to my pleasure
+
+那它是什么？它进入我的心灵搜寻并探讨并沉思，因为假如那时我爱那被偷的果实并渴望享受它们，我就能会独自偷盗；假如我犯下那罪邪足以使我达到我的快乐，那我就不会被灵魂罪性的摩擦点燃我贪欲的骚动。
