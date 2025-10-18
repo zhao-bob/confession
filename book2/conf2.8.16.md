@@ -9,7 +9,7 @@
 
 > et tamen solus id non fecissem (sic recordor animum tunc meum), solus omnino id non fecissem. ergo amavi ibi etiam consortium eorum cum quibus id feci.
 
-而尽管如此，我未曾独自偷盗，而且我回想那时我的全部记忆，我绝对从未独自做此。因此当我同这些人偷盗时，我也在其中爱与他们的情谊。
+而尽管如此，我未曾独自偷盗，而且我回想那时我的全部记忆，我绝对从未独自做此。因此当我同这些人干这勾当时，我也在其中爱与他们的情谊。
 
 > non ergo nihil aliud quam furtum amavi? immo vero nihil aliud, quia et illud nihil est. quid est re vera? (quis est qui doceat me, nisi qui inluminat cor meum et discernit umbras eius?)
 
@@ -21,6 +21,8 @@
 
 > quid est? quod mihi venit in mentem quaerere et discutere et considerare, quia si tunc amarem poma illa quae furatus sum et eis frui cuperem, possem etiam solus; si satis esset committere illam iniquitatem qua pervenirem ad voluptatem meam, nec confricatione consciorum animorum accenderem pruritum cupiditatis meae.
 
-it is enough to commit that iniquity that I come to my pleasure
+那它是什么？它进入我的心灵搜寻并探讨并沉思。因为假如那时我爱那被偷的果实并渴望享受它们，我就能会独自干那勾当；假如我犯下那罪邪足以使我达到我的快乐，那我就不会被灵魂罪性间的相互摩擦激起我贪欲的骚动。
 
-那它是什么？它进入我的心灵搜寻并探讨并沉思，因为假如那时我爱那被偷的果实并渴望享受它们，我就能会独自偷盗；假如我犯下那罪邪足以使我达到我的快乐，那我就不会被灵魂罪性的摩擦点燃我贪欲的骚动。
+> sed quoniam in illis pomis voluptas mihi non erat, ea erat in ipso facinore quam faciebat consortium simul peccantium.
+
+但因为快乐对我不是在那些果实上，而是在罪行本身上，而罪恶的情谊将其促成。
