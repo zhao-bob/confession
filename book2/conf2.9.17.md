@@ -15,6 +15,6 @@
 
 > at ego illud solus non facerem, non facerem omnino solus. ecce est coram te, deus meus, viva recordatio animae meae. solus non facerem furtum illud, in quo me non libebat id quod furabar sed quia furabar: quod me solum facere prorsus non liberet, nec facerem.
 
-可相反，我未独自做哪些勾当，而且我独自绝对未做。我的上帝，看啊，我灵魂鲜活的回忆摆在祢面前[^3]。我独自未犯那偷盗，其中所偷的并不使我愉悦，不过是因为我偷了它们：而独自去做完完全全不会使我高兴，而我也不会去做。
+可相反，我未独自做哪些勾当，而且我独自绝对未做。我的上帝，看啊，我灵魂鲜活的回忆摆在祢面前[^3]。我独自未犯那偷盗，其中所偷的并不使我愉悦，不过是因为我偷了它们：而独自去做根本不会使我高兴，而我也不会去做。
 
 [^3]: [民10:9](https://biblehub.com/numbers/10-9.htm) 当你们在你们自身土地上投入对抗一个压迫你们的敌人的战斗时，要在号角上吹响爆破声。于是你们会在耶和华你们的上帝面前被记起并从你们的敌人被拯救。
