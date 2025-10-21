@@ -12,3 +12,7 @@
 > cur ergo eo me delectabat quo id non faciebam solus? an quia etiam nemo facile solus ridet? nemo quidem facile, sed tamen etiam solos et singulos homines, cum alius nemo praesens, vincit risus aliquando, si aliquid nimie ridiculum vel sensibus occurit vel animo.
 
 可为何这些我独自不做的事情会使我喜悦呢？或是因为无人独自轻易发笑？确实无人轻易如此，可尽管如此当没有其他人在场时，笑声有时还是会征服那些独自一人的个体，如果某种过于搞笑的东西在他的感观或心灵上发生。
+
+> at ego illud solus non facerem, non facerem omnino solus. ecce est coram te, deus meus, viva recordatio animae meae.
+
+可相反，我未独自做哪些勾当，而且我独自绝对未做。我的上帝，看啊，这就是我的灵魂在祢面前鲜活的回忆。
