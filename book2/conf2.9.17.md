@@ -21,4 +21,4 @@
 
 > o nimis inimica amicitia, seductio mentis investigabilis, ex ludo et ioco nocendi aviditas et alieni damni appetitus nulla lucri mei, nulla ulciscendi libidine! sed cum dicitur, `eamus, faciamus,' et pudet non esse impudentem.
 
-多么有害的友谊啊！你这个难以捉摸的心灵诱陷者！你是那由游戏与玩笑来作害的贪婪，并嗜好他人的祸失，却不管我个人的益处，也不管情欲的复仇！而当它说：“我们走，行动起来”，它就使我们羞愧于不变得无耻。
+多么有害的友谊啊！你这个难以捉摸的心灵诱陷者！你是那由游戏与玩笑来作害的贪婪，并嗜好他人的祸失，却不管我个人的益处，也不管情欲的复仇！而只要它说：“我们走，行动起来”，它就使我们羞愧于不变得无耻。
