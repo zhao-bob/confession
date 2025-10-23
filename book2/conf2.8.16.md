@@ -25,4 +25,4 @@
 
 > sed quoniam in illis pomis voluptas mihi non erat, ea erat in ipso facinore quam faciebat consortium simul peccantium.
 
-但因为快乐对我不是在那些果实上，而是在罪行本身上，而罪恶的情谊将其促成。
+但因为快乐于我不是在那些果实上，而是在罪行本身上，而罪恶的情谊将其促成。
