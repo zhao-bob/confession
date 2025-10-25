@@ -21,7 +21,7 @@
 
 > quid te autem innocentius, quandoquidem opera sua malis inimica sunt? et ignavia quasi quietem appetit: quae vero quies certa praeter dominum?
 
-而既然是由罪人的行为给自身带来伤害，那什么比祂更无辜呢？而怠惰假装渴求安息：除主以外哪有真正确定的安息？
+而既然是由罪人的行为给自身带来伤害，那什么比祂更无辜呢？而怠惰假装渴求安息：除主以外哪有真正确定的和平？
 
 > luxuria satietatem atque abundantiam se cupit vocari: tu es autem plenitudo et indeficiens copia incorruptibilis suavitatis. effusio liberalitatis obtendit umbram: sed bonorum omnium largitor affluentissimus tu es.
 
