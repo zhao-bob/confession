@@ -14,7 +14,9 @@
 *.pytxpyg
 *.pkl
 *.vrb
-The Confessions
+WCF.tex
+WCF.pdf
+The Confessions.pdf
 
 # Project files, i.e. `.project`, `.actionScriptProperties` and `.flexProperties`
 # should NOT be excluded as they contain compiler settings and other important

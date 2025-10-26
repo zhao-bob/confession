@@ -67,3 +67,13 @@
 ### [第六章 2. 6. 12](https://zhao-bob.github.io/confession/book2/conf2.6.12)、[2. 6. 13](https://zhao-bob.github.io/confession/book2/conf2.6.13)、[2. 6. 14](https://zhao-bob.github.io/confession/book2/conf2.6.14)
 
 ### [第七章 2. 7. 15](https://zhao-bob.github.io/confession/book2/conf2.7.15)
+
+### [第八章 2. 8. 16](https://zhao-bob.github.io/confession/book2/conf2.8.16)
+
+### [第九章 2. 9. 17](https://zhao-bob.github.io/confession/book2/conf2.9.17)
+
+### [第十章 2. 10. 18](https://zhao-bob.github.io/confession/book2/conf2.10.18)
+
+## 第三卷
+
+奥古斯丁在这一卷讲述他在迦太基求学时期的故事。在这期间，他发现了西塞罗的《霍尔滕修斯》，燃起他对哲学的兴趣并痴迷于摩尼教异端，而他母亲却预言了他最终回归真正的信仰和上帝。
