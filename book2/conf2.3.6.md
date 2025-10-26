@@ -25,7 +25,7 @@
 
 > itaque illa exilivit pia trepidatione ac tremore et, quamvis mihi nondum fideli, timuit tamen vias distortas in quibus ambulant qui ponunt ad te tergum et non faciem.
 
-因为她对此涌现出虔诚的惶恐和战栗[^6]，而尽管我尚未认信，她却为我害怕他们行走其中的那些崎岖道路，他们用背对着祢，而不是他们的脸[^7]。
+因为她对此涌现出虔诚的惶恐和战栗[^6]，而尽管我尚未认信，她却为我害怕他们行走其中的那些崎岖道路：他们用背对着祢，而不是他们的脸[^7]。
 
 [^6]: [林后7:15](https://biblehub.com/2_corinthians/7-15.htm) 而当他记起你们所有人都顺服，以敬畏和战兢接收他时，他对你们的情感越发巨大。
 
