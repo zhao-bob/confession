@@ -13,7 +13,7 @@
 
 > illi enim non intuebantur quo referrem quod me discere cogebant, praeterquam ad satiandas insatiabiles cupiditates copiosae inopiae et ignominiosae gloriae.
 
-他们不考虑我会如何使用他们强迫我学的，而以为这将满足对通往贫穷的富有和归向羞耻的荣耀无节制的贪婪。
+他们不考虑我会如何使用他们强迫我学的，而以为这将满足对通往贫乏的富有和归向羞耻的荣耀无节制的贪婪。
 
 > tu vero, cui numerati sunt capilli nostri, errore omnium qui mihi instabant ut discerem utebaris ad utilitatem meam, meo autem, qui discere nolebam, utebaris ad poenam meam, qua plecti non eram indignus, tantillus puer et tantus peccator.
 

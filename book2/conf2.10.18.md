@@ -13,7 +13,7 @@
 
 > defluxi abs te ego et erravi, deus meus, nimis devius ab stabilitate tua in adulescentia, et factus sum mihi regio egestatis.
 
-我的上帝啊，我在青年时已游离祢而迷失[^2]，与祢的稳定完全隔绝，而我使我自己成为一片贫瘠之地[^3]。
+我的上帝啊，我在青年时已游离祢而迷失[^2]，与祢的稳定完全隔绝，而我使我自己成为一片贫穷之地[^3]。
 
 [^2] [诗119:176](https://biblehub.com/psalms/119-176.htm) 我已迷失像一只丢失的羊。寻求祢的仆人，因为我未曾忘记祢的诫命。
 
