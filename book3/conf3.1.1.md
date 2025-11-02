@@ -27,6 +27,10 @@
 
 > deus meus, misericordia mea, quanto felle mihi suavitatem illam et quam bonus aspersisti, quia et amatus sum, et perveni occulte ad vinculum fruendi, et conligabar laetus aerumnosis nexibus, ut caederer virgis ferreis ardentibus zeli et suspicionum et timorum et irarum atque rixarum.
 
-我的上帝，我的宽恕啊[^3]，祢的善良在这甜蜜中为我撒上了多少苦汁！
+我的上帝，我的宽恕啊[^3]，祢的善良在这甜蜜中为我撒上了多少苦汁！因为我不仅被爱，并且已浑然抵达我渴望享受的捆绑，甚至欢然被带来折磨的系结聚拢，以致被满是嫉妒、猜忌、焦虑、愤怒和谩骂[^4]的炽热铁棍[^5]击打。
 
 [^3]: [诗59:17](https://biblehub.com/psalms/59-17.htm) 我的力量啊，我向祢歌唱赞美，因为上帝啊，祢是我的城堡，我慈爱的上帝。
+
+[^4]: [加5:19](https://biblehub.com/galatians/5-19.htm) 肉体的行动是显然的：淫乱、不洁和放荡； [20](https://biblehub.com/galatians/5-20.htm) 偶像崇拜和巫术；憎恨、不和、嫉妒、暴怒、私欲、派斗、帮派 [21](https://biblehub.com/galatians/5-21.htm) 和忌妒；醉酒、狂欢诸如此类。如我以前所做的，我警告你们，那些像这样生活的人不会继承上帝的国度。
+
+[^5]: [诗2:9](https://biblehub.com/psalms/2-9.htm) 祢会用铁仗打破他们；祢会使他们像陶器一样碎裂。
