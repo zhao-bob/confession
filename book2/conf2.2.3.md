@@ -17,7 +17,7 @@
 
 > -- aut certe sonitum nubium tuarum vigilantius adverterem: 'tribulationem autem carnis habebunt huius modi; ego autem vobis parco'; et 'bonum est homini mulierem non tangere'; et 'qui sine uxore est, cogitat ea quae sunt dei, quomodo placeat deo; qui autem matrimonio iunctus est, cogitat ea quae sunt mundi, quomodo placeat uxori.'
 
----那么我肯定会更机警地留意祢云彩的声音[^4]：“然而那些以此方式生活的人会有肉体上的烦忧；而我想使你们免受此”[^5]；和“对于男人不触碰女人是好的”[^6]；和“那没有妻子的人思考关于上帝的事---他如何能取悦上帝；而那被婚姻捆绑的人，思考关于世俗的事---他如何能取悦妻子。”[^7]
+---那么我肯定会更机警地留意祢云彩的声音[^4]：“然而那些以此方式生活的人会有肉体上的烦忧；而我想使你们免受此”[^5]；和“对于男人不触碰女人是好的”[^6]；和“那没有妻子的人思考关于上帝的事---他如何能取悦上帝；而那被婚姻结合的人，思考关于世俗的事---他如何能取悦妻子。”[^7]
 
 [^4]: [可9:7](https://biblehub.com/mark/9-7.htm) 然后一片云出现并遮盖了他们，而一个话音从那云彩而来：“这是我的圣子，我所爱的。要听从祂！”
 
