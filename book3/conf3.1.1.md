@@ -27,7 +27,7 @@
 
 > deus meus, misericordia mea, quanto felle mihi suavitatem illam et quam bonus aspersisti, quia et amatus sum, et perveni occulte ad vinculum fruendi, et conligabar laetus aerumnosis nexibus, ut caederer virgis ferreis ardentibus zeli et suspicionum et timorum et irarum atque rixarum.
 
-我的上帝，我的宽恕啊[^3]，祢的善良在这甜蜜中为我撒上了多少苦汁！因为我不仅有了爱情，并且已浑然抵达我渴望享受的捆绑，甚至欢然被带来折磨的系结聚拢，以致被满是嫉妒、猜忌、焦虑、愤怒和谩骂[^4]的炽热铁棍[^5]击打。
+我的上帝，我的宽恕啊[^3]，祢的善良在这甜蜜中为我撒上了多少苦汁！因为我不仅得到了爱情，并且已悄然抵达那欢享的牢笼，甚至欢然被带来折磨的系结聚拢，以致被满是嫉妒、猜忌、焦虑、愤怒和谩骂[^4]的炽热铁棍[^5]击打。
 
 [^3]: [诗59:17](https://biblehub.com/psalms/59-17.htm) 我的力量啊，我向祢歌唱赞美，因为上帝啊，祢是我的城堡，我慈爱的上帝。
 
