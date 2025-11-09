@@ -13,4 +13,10 @@
 
 而人越是被这些激动，他就对这些感情越缺少理智。只有当他自己受难时，这被习惯称为痛苦；而当他同情他人时，这就被称为慈悲。
 
-[^1]: [诗91:3](https://biblehub.com/psalms/91-3.htm) 无疑祂会将你从捕鸟者的罗网和致死的瘟疫解救。
+> sed qualis tandem misericordia in rebus fictis et scenicis? non enim ad subveniendum provocatur auditor sed tantum ad dolendum invitatur, et actori earum imaginum amplius favet cum amplius dolet.
+
+但在这虚假而戏剧事情上的慈悲究竟是一种什么？因为听众并未受到激发而去帮忙，却仅仅是被邀请来悲伤，而他越是悲伤，他越是偏爱这形象中的演员。
+
+> et si calamitates illae hominum, vel antiquae vel falsae, sic agantur ut qui spectat non doleat, abscedit inde fastidiens et reprehendens; si autem doleat, manet intentus et gaudens lacrimat.
+
+而如果那些人间惨剧上演，无论古代的还是虚构的，而无法使观看者悲伤，他就会带着厌弃和咒骂离去；然而如果使他悲伤不已，他就会全神贯注而流下心满意足的泪水。
