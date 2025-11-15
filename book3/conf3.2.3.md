@@ -13,7 +13,13 @@
 
 > repudietur ergo misericordia? nequaquam. ergo amentur dolores aliquando, sed cave immunditiam, anima mea, sub tutore deo meo, deo patrum nostrorum et laudabili et superexaltato in omnia saecula, cave immunditiam.
 
-那么就要拒斥慈悲吗？绝非如此。因此有时悲伤是要被爱的，但我的灵魂啊，要当心不洁[^2]，在我的上帝、我们父辈的上帝、那配受赞美而万代被致胜者[^2]的守护下，要当心不洁。
+那么就要拒斥慈悲吗？绝非如此。因此有时悲伤是要被爱的，但我的灵魂啊，要当心不洁[^2]，在我的上帝、我们父辈的上帝、那配受赞美而万代致胜者[^3]的守护下，要当心不洁。
 
 [^2]: [帖前4:7](https://biblehub.com/1_thessalonians/4-7.htm) 因为上帝未曾向不洁召唤我们，而是向神圣。
-[^3]: [雅2:13](https://biblehub.com/james/2-13.htm) 因为没有宽恕的审判会被展示给任何未曾宽容的人。宽恕制胜于审判。
+[^3]: [雅2:13](https://biblehub.com/james/2-13.htm) 因为没有宽恕的审判会被展示给任何未曾宽容的人。宽恕制胜于审判。 [诗113:4](https://biblehub.com/psalms/113-4.htm) 耶和华被提拔超过万邦，祂的荣耀超过诸天。
+
+> neque enim nunc non misereor, sed tunc in theatris congaudebam amantibus cum sese fruebantur per flagitia, quamvis haec imaginarie gererent in ludo spectaculi.
+
+而直到现在我都不会不共情，但那时剧场中恋人无耻地作乐时，我与他们同乐，尽管在戏剧中上演的这些只是虚假的。
+
+
