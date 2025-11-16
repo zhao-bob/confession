@@ -20,7 +20,7 @@
 
 > neque enim nunc non misereor, sed tunc in theatris congaudebam amantibus cum sese fruebantur per flagitia, quamvis haec imaginarie gererent in ludo spectaculi. cum autem sese amittebant, quasi misericors contristabar, et utrumque delectabat tamen.
 
-而直到现在我都不会不共情，但那时在剧场中当恋人们无耻地作乐时，我与他们同乐，尽管在戏剧中上演的这些只是虚假的。而当他们失去对方，我因悲悯而沮丧，而无论如何都令我愉悦。
+而直到现在我都不会不共情，但那时在剧场中当恋人们无耻地作乐时，我与他们同乐，尽管在戏剧中上演的这些只是虚假的；而当他们失去对方，我就因悲悯而沮丧---而无论如何都令我愉悦。
 
 
 
