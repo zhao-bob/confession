@@ -22,6 +22,10 @@
 
 而直到现在我都不会不共情，但那时在剧场中当恋人们无耻地作乐时，我与他们同乐，尽管在戏剧中上演的这些只是虚假的；而当他们失去对方，我就因悲悯而沮丧---而无论如何都令我愉悦。
 
+> nunc vero magis misereor gaudentem in flagitio quam velut dura perpessum detrimento perniciosae voluptatis et amissione miserae felicitatis.
+
+现在我真的更同情那些以无耻为乐的人，而不是那些只因失去有害的快乐、错失可怜的好运而自以为饱经患难的人。
+
 
 
 
