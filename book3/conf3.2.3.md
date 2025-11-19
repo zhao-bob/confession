@@ -30,7 +30,9 @@
 
 因为即便那为痛苦的人悲伤的人应因他博爱的职分而受赞许，但真正悲悯之人绝对宁愿没有可悲之事存在。
 
+> si enim est malivola benivolentia, quod fieri non potest, potest et ille qui veraciter sinceriterque miseretur cupere esse miseros, ut misereatur. nonnullus itaque dolor approbandus, nullus amandus est.
 
+因为如果仁慈是恶意的，那么那些真心诚意怜悯的人就可能渴望他人变得不幸，以致于怜悯他们，而这不可能发生。因此某些悲伤是被赞许的，但没有悲伤为人所爱。
 
 
 
