@@ -36,7 +36,7 @@
 
 > hoc enim tu, domine deus, qui animas amas, longe alteque purius quam nos et incorruptibilius misereris, quod nullo dolore sauciaris. et ad haec quis idoneus?
 
-而祢，我的上帝啊，祢深长地爱灵魂[^4]并拥有比我们更纯洁而不灭的悲悯，因此祢被伤害却毫无悲伤。而谁胜任这些事呢[^5]？
+而祢，我的上帝啊，祢深长地爱灵魂[^4]并比我们更纯洁而不灭地施悲悯，因此祢被伤害却毫无悲伤。而谁胜任这些事呢[^5]？
 
 [^4]: [弗3:18](https://biblehub.com/ephesians/3-18.htm) 有权柄，与主所有圣民一起，去领会基督的爱是多么宽广、长久、高远与深厚，
 [^5]: [林后2:16](https://biblehub.com/2_corinthians/2-16.htm) 我们对一个是带来死亡的芬芳；对另一个，是一种带来生命的芬芳。而谁适配这样一个任务？
