@@ -34,5 +34,11 @@
 
 因为如果仁慈是恶意的，那么那些真心诚意怜悯的人就可能渴望他人变得不幸，以致于怜悯他们，而这不可能发生。因此某些悲伤是被赞许的，但没有悲伤为人所爱。
 
+> hoc enim tu, domine deus, qui animas amas, longe alteque purius quam nos et incorruptibilius misereris, quod nullo dolore sauciaris. et ad haec quis idoneus?
+
+而祢，我的上帝啊，祢深长地爱灵魂并拥有比我们更纯洁而不衰的悲悯，因此祢被伤害却毫无悲伤。而谁胜任这些事呢[^4]？
+
+[^4]: [林后2:16](https://biblehub.com/2_corinthians/2-16.htm) 我们对一个是带来死亡的芬芳；对另一个，是一种带来生命的芬芳。而谁适配这样一个任务？
+
 
 
