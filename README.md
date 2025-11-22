@@ -80,4 +80,4 @@
 
 ### [第一章 3. 1. 1](https://zhao-bob.github.io/confession/book3/conf3.1.1)
 
-### [第二章 3. 2. 2](https://zhao-bob.github.io/confession/book3/conf3.2.2)
+### [第二章 3. 2. 2](https://zhao-bob.github.io/confession/book3/conf3.2.2)、[3. 2. 3](https://zhao-bob.github.io/confession/book2/conf3.2.3)
