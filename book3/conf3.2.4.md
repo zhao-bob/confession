@@ -9,6 +9,10 @@
 
 而当不幸的羊游离祢的牧群而厌烦祢的守护，就会被污秽的疥癣沾染，这有什么稀奇的呢？
 
+> et inde erant dolorum amores, non quibus altius penetrarer (non enim amabam talia perpeti qualia spectare), sed quibus auditis et fictis tamquam in superficie raderer.
+
+因此它们是一种对悲伤的爱，而这种爱不会被深深地刺进我里面（因为这些我爱观看的，并不是我爱经受的那些），而不过是在表面刮擦的虚假听闻。
+
 [^1]
 
 [^1]: [赛34:9](https://biblehub.com/isaiah/34-9.htm) 以东的溪流会被转为沥青，她的灰尘会转为燃烧的硫磺；她的土地会变为炽烧的沥青！
