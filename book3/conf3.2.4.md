@@ -15,4 +15,4 @@
 
 > quos tamen quasi ungues scalpentium fervidus tumor et tabes et sanies horrida consequebatur. talis vita mea numquid vita erat, deus meus?
 
-而好似利爪在其上抓挠，随之而来的是火热的肿胞与溃烂和严重的化脓。我的上帝啊，我这样的生命能算是生命吗？
+而它们好似利爪在其上抓挠，随之而来的是火热的肿胞与溃烂和严重的化脓。我的上帝啊，我这样的生命还能算是生命吗？
