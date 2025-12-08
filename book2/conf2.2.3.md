@@ -13,7 +13,7 @@
 
 [^2]: [创1:28](https://biblehub.com/genesis/1-28.htm) 上帝祝福他们并对他们说：“要富有果实，并在数目上增长；充满大地并制伏它。统治海中的鱼，天上的鸟，并统治在地面活动的每一个活物。”
 
-[^3]: [创3:17](https://biblehub.com/genesis/3-17.htm) 对亚当祂说，“因为你听从你的妻子并吃了那树的果实，而我对此命令过你，‘你决不能以它为食，’“因为你地面被诅咒；在你生命的所有日子你只有通过痛苦的劳作才会从它吃到食物。 [18](https://biblehub.com/genesis/3-17.htm) 它会为你产出荆棘和紫蓟，而你会吃田野的植物。
+[^3]: [创3:17](https://biblehub.com/genesis/3-17.htm) 对亚当祂说，“因为你听从你的妻子并吃了那树的果实，而我对此命令过你，‘你决不能以它为食，’“因为你地面被诅咒；在你生命的所有日子你只有通过痛苦的劳作才会从它吃到食物。 [18](https://biblehub.com/genesis/3-18.htm) 它会为你生出荆棘和紫蓟，而你会吃田野的植物。
 
 > -- aut certe sonitum nubium tuarum vigilantius adverterem: 'tribulationem autem carnis habebunt huius modi; ego autem vobis parco'; et 'bonum est homini mulierem non tangere'; et 'qui sine uxore est, cogitat ea quae sunt dei, quomodo placeat deo; qui autem matrimonio iunctus est, cogitat ea quae sunt mundi, quomodo placeat uxori.'
 
