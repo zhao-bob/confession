@@ -15,4 +15,6 @@
 
 > viluit mihi repente omnis vana spes, et immortalitatem sapientiae concupiscebam aestu cordis incredibili, et surgere coeperam ut ad te redirem.
 
-忽然所有虚妄的前程对我变得毫无意义，而我满心不可思议地沸腾而热望智慧的不朽，并开始奋起以向祢回归。
+忽然所有虚妄的前程对我变得毫无意义，而我满心不可思议地沸腾而热望智慧的不朽，并开始奋起以向祢回归[^1]。
+
+[^1]: [路15:18](https://biblehub.com/luke/15-18.htm) 我会奋起而走回我父亲身边并对他说，“父亲，我已对天并对你犯了罪。
