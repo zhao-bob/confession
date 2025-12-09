@@ -12,3 +12,7 @@
 > ille vero liber mutavit affectum meum, et ad te ipsum, domine, mutavit preces meas, et vota ac desideria mea fecit alia.
 
 那本书确实改变了我的热情，并向主祢本身改变了我祷告，而使我有了别的志向和渴望。
+
+> viluit mihi repente omnis vana spes, et immortalitatem sapientiae concupiscebam aestu cordis incredibili, et surgere coeperam ut ad te redirem.
+
+忽然所有虚妄的前程对我变得毫无意义，而我满心不可思议地沸腾而热望智慧的不朽，并开始奋起以向祢回归。
