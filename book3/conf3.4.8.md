@@ -11,3 +11,7 @@
 有些人借着哲学诱骗，在这宏大、善诱而高贵的名下伪装涂抹自身的谬误，而在这本书中几乎所有在那个时代及之前时代的这类人都被记录并展示，而这源自祢的圣灵的有益告诫也藉着祢善良而虔诚的仆人被揭示：“留意不要让人借着哲学和空洞的诱导欺骗你们，它们是按照人类传统，按照这世界元素论的，而不是按照基督的，因为在祂里面，神性的所有圆满以身体的形式栖居。”[^2]
 
 [^2]: [西2:8](https://biblehub.com/colossians/2-8.htm) 要留意不要让人借着哲学和空洞的欺骗将你们掳走，它们基于人类传统和这世界的灵力，而不是基督。 [9](https://biblehub.com/colossians/2-9.htm) 因为在祂里面，神性的所有圆满都以身体的形式栖居，
+
+> et ego illo tempore, scis tu, lumen cordis mei, quoniam nondum mihi haec apostolica nota erant, hoc tamen solo delectabar in illa exhortatione, quod non illam aut illam sectam, sed ipsam quaecumque esset sapientiam ut diligerem et quarererem et adsequerer et tenerem atque amplexarer fortiter, excitabar sermone illo et accendebar et ardebam, et hoc solum me in tanta flagrantia refrangebat, quod nomen Christi non erat ibi, quoniam hoc nomen secundum misericordiam tuam, domine, hoc nomen salvatoris mei, filii tui, in ipso adhuc lacte matris tenerum cor meum pie biberat et alte retinebat, et quidquid sine hoc nomine fuisset, quamvis litteratum et expolitum et veridicum, non me totum rapiebat.
+
+而我内心的光啊，祢知道，因为在那时这些使徒的经文还未为我所知，我只在那篇劝诫中以这些话为乐，
