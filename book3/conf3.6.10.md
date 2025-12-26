@@ -14,3 +14,7 @@
 
 [^3]: [书1:8](https://biblehub.com/joshua/1-8.htm) 律法的这书卷决不能离开你的口；日日夜夜冥思它，以使你能谨慎去行其中记载的一切。那时你就会兴旺并在你所做的所有事上都成功。
 
+> et dicebant, `veritas et veritas,' et multum eam dicebant mihi, et nusquam erat in eis, sed falsa loquebantur, non de te tantum, qui vere veritas es, sed etiam de istis elementis huius mundi, creatura tua, de quibus etiam vera dicentes philosophos transgredi debui prae amore tuo, mi pater summe bone, pulchritudo pulchrorum omnium.
+
+而他们惯于说，“真理、真理”，并且他们对我说了很多这些，可这些中却没有真理可言。而他们虚假的夸夸其谈不仅关于祢---而祢才是真正的真理，而且还关于这世界的元素论、祢的造物---哲学家们还向着这些谈论真理，而我本应略去他们，而到对祢、我至善圣父、万美之美的爱面前。
+
