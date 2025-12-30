@@ -29,6 +29,8 @@
 因为祢属灵的杰作要先于这些属体的，尽管它们在天上闪耀。
 
 > at ego nec priora illa, sed te ipsam, te veritas, in qua non est commutatio nec momenti obumbratio, esuriebam et sitiebam.
-而我如饥似渴的并非最初的这些，而是祢本身，而祢就是真理，其中没有飘移阴影的改变[^4]。
+而我如饥似渴的[^4]并非最初的这些，而是祢本身，而祢就是真理，其中没有飘移阴影的改变[^5]。
 
-[^4]: [雅1:17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。
+[^4]: [太5:6](https://biblehub.com/matthew/5-6.htm) 那些对正义如饥似渴的有福了，因为他们会被充满。 [林前4:11](https://biblehub.com/1_corinthians/4-11.htm) 甚至直到这时辰我们还饥饿干渴，我们衣不蔽体，我们被残酷对待，我们无家可归。
+
+[^5]: [雅1:17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。
