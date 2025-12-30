@@ -23,9 +23,12 @@
 真理啊，真理，当他们仅仅凭声音和繁卷浩帙频繁反复地向我唠叨关于祢的这真理，我那时灵魂的深处是怎样内在地向祢叹息！
 
 > et illa erant fercula in quibus mihi esurienti te inferebatur pro te sol et luna, pulchra opera tua, sed tamen opera tua, non tu, nec ipsa prima.
-而这些就是在我对祢如饥似渴时他们给我的菜肴，其中他们端上的不是祢，而是太阳和月亮，虽是祢美丽的杰作，但仅仅是祢的造物，而不是祢，它们本身并不是起初的。
+而这些就是在我对祢饥饿难当时他们给我的菜肴，其中他们端上的不是祢，而是太阳和月亮，虽是祢美丽的杰作，但仅仅是祢的造物，而不是祢，它们本身并不是起初的。
 
 > priora enim spiritalia opera tua quam ista corporea, quamvis lucida et caelestia.
 因为祢属灵的杰作要先于这些属体的，尽管它们在天上闪耀。
 
 > at ego nec priora illa, sed te ipsam, te veritas, in qua non est commutatio nec momenti obumbratio, esuriebam et sitiebam.
+而我如饥似渴的并非最初的这些，而是祢本身，而祢就是真理，其中没有飘移阴影的改变[^4]。
+
+[^4]: [雅1:17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。
