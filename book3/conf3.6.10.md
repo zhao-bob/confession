@@ -10,6 +10,7 @@
 [^2]: [约14:26](https://biblehub.com/john/14-26.htm) 但保惠师、那圣灵，圣父会以我的名差派祂，而祂会教导你们万事并会提醒你们我已对你们说的一切。
 
 > haec nomina non recedebant de ore eorum, sed tenus sono et strepitu linguae; ceterum cor inane veri.
+
 这些名字从未离开他们的口[^3]，但不过是舌头发出的噪声与喧哗；不仅如此，他们内心毫无真理。
 
 [^3]: [书1:8](https://biblehub.com/joshua/1-8.htm) 律法的这书卷决不能离开你的口；日日夜夜冥思它，以使你能谨慎去行其中记载的一切。那时你就会兴旺并在你所做的所有事上都成功。
@@ -23,14 +24,20 @@
 真理啊，真理，当他们仅仅凭声音和繁卷浩帙频繁反复地向我唠叨关于祢的这真理，我那时灵魂的深处是怎样内在地向祢叹息！
 
 > et illa erant fercula in quibus mihi esurienti te inferebatur pro te sol et luna, pulchra opera tua, sed tamen opera tua, non tu, nec ipsa prima.
+
 而这些就是在我对祢饥饿难当时他们给我的菜肴，其中他们端上的不是祢，而是太阳和月亮，虽是祢美丽的杰作，但仅仅是祢的造物，而不是祢，它们本身并不是起初的。
 
 > priora enim spiritalia opera tua quam ista corporea, quamvis lucida et caelestia.
 因为祢属灵的杰作要先于这些属体的，尽管它们在天上闪耀。
 
 > at ego nec priora illa, sed te ipsam, te veritas, in qua non est commutatio nec momenti obumbratio, esuriebam et sitiebam.
+
 而我如饥似渴的[^4]并非最初的这些，而是祢本身，而祢就是真理，其中没有飘移阴影的改变[^5]。
 
 [^4]: [太5:6](https://biblehub.com/matthew/5-6.htm) 那些对正义如饥似渴的有福了，因为他们会被充满。 [林前4:11](https://biblehub.com/1_corinthians/4-11.htm) 甚至直到这时辰我们还饥饿干渴，我们衣不蔽体，我们被残酷对待，我们无家可归。
 
 [^5]: [雅1:17](https://biblehub.com/james/1-17.htm) 每一份善而完美的恩赐都源自上天，从天国众光之父降临，而祂不会像飘移的阴影一样改变。
+
+> et apponebantur adhuc mihi in illis ferculis phantasmata splendida, quibus iam melius erat amare istum solem saltem istis oculis verum quam illa falsa animo decepto per oculos.
+
+而他们还在这些菜肴中为我盛上炫亮的幻象，而爱那太阳比爱这些假象更好，因为太阳至少对肉眼是真实的，而假象却借着眼睛来欺骗灵魂。
