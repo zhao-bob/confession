@@ -45,3 +45,11 @@
 > et tamen, quia te putabam, manducabam, non avide quidem, quia nec sapiebas in ore meo sicuti es (neque enim tu eras illa figmenta inania) nec nutriebar eis, sed exhauriebar magis.
 
 然而，因为我将它们想象成祢，就将其嚼下，当然并没有多么热切，因为“祢”在我口中尝起来既并不像是祢的美味（因为祢不是那些空洞的虚构），我也无法被这些滋养，反而被更加耗尽。
+
+> cibus in somnis simillimus est cibis vigilantium, quo tamen dormientes non aluntur; dormiunt enim.
+
+睡梦中的食物与清醒时的食物最为相似，但他们睡着时并未因此得到给养；而仅仅是睡着而已。
+
+> at illa nec similia erant ullo modo tibi, sicut nunc mihi locuta es, quia illa erant corporalia phantasmata, falsa corpora, quibus certiora sunt vera corpora ista quae videmus visu carneo, sive caelestia sive terrestria, cum pecudibus et volatilibus.
+
+而那些与祢现在对我讲的祢的任何模式都不相似，因为那些是属体的幻象、虚假的身体
