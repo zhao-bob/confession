@@ -57,3 +57,15 @@
 > videmus haec, et certiora sunt quam cum imaginamur ea. et rursus certius imaginamur ea quam ex eis suspicamur alia grandiora et infinita, quae omnino nulla sunt.
 
 我们看见这些比我们想象它们时更确信。而另一方面，我们想象这些又比从它们假想根本不存在的、浩瀚无垠的其他东西更确信。
+
+> qualibus ego tunc pascebar inanibus, et non pascebar. 
+
+那时我就被这样的虚空喂养，而根本未得到喂养。
+
+> at tu, amor meus, in quem deficio ut fortis sim, nec ista corpora es quae videmus quamquam in caelo, nec ea quae non videmus ibi, quia tu ista condidisti nec in summis tuis conditionibus habes. quanto ergo longe es a phantasmatis illis meis, phantasmatis corporum quae omnino non sunt!
+
+而祢，我的爱啊，我寻求祢时昏弱以致我能变得刚强[^6]，尽管祢也在天上，可祢既不是我们看见的那些星体，也不是我们在天上根本看不见的这些[^7]，
+
+[^6]: [诗119:81](https://biblehub.com/psalms/119-81.htm) 我的灵魂为祢的拯救而昏弱；我为祢的言而等待。
+
+[^7]: [罗1:20](https://biblehub.com/romans/1-20.htm) 因为自创造世界以来，上帝不可见的品质---祂永恒的大能和神的本性---通过已被造之物被理解，已被清晰地看见，以致人们没有借口。
