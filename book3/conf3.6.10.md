@@ -64,8 +64,8 @@
 
 > at tu, amor meus, in quem deficio ut fortis sim, nec ista corpora es quae videmus quamquam in caelo, nec ea quae non videmus ibi, quia tu ista condidisti nec in summis tuis conditionibus habes. quanto ergo longe es a phantasmatis illis meis, phantasmatis corporum quae omnino non sunt!
 
-而祢，我的爱啊，我寻求祢时昏弱以致我能变得刚强[^6]，尽管祢也在天上，可祢既不是我们看见的那些星体，也不是我们在天上根本看不见的这些[^7]，
+而祢，我的爱啊，我为祢而昏弱以致我能变得刚强[^6]，可祢既不是我们看见的那些星体，尽管它们在天上，也不是我们在那里看不见的那些[^7]，因为祢已创立它们而祢并未将它们算在祢至高的造物。因此，祢离我的那些幻象，那些完全不存在的属体幻象是多么遥远！
 
-[^6]: [诗119:81](https://biblehub.com/psalms/119-81.htm) 我的灵魂为祢的拯救而昏弱；我为祢的言而等待。
+[^6]: [诗119:81](https://biblehub.com/psalms/119-81.htm) 我的灵魂为祢的拯救而昏弱；我为祢的言而等待。 [林后12:10](https://biblehub.com/2_corinthians/12-10.htm) 这是为什么，因基督的缘故，我以软弱、侮辱、艰难、迫害、困难为乐。因为当我软弱时，那么我就坚强。
 
 [^7]: [罗1:20](https://biblehub.com/romans/1-20.htm) 因为自创造世界以来，上帝不可见的品质---祂永恒的大能和神的本性---通过已被造之物被理解，已被清晰地看见，以致人们没有借口。
