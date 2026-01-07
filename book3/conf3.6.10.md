@@ -69,3 +69,11 @@
 [^6]: [诗119:81](https://biblehub.com/psalms/119-81.htm) 我的灵魂为祢的拯救而昏弱；我为祢的言而等待。 [林后12:10](https://biblehub.com/2_corinthians/12-10.htm) 这是为什么，因基督的缘故，我以软弱、侮辱、艰难、迫害、困难为乐。因为当我软弱时，那么我就坚强。
 
 [^7]: [罗1:20](https://biblehub.com/romans/1-20.htm) 因为自创造世界以来，上帝不可见的品质---祂永恒的大能和神的本性---通过已被造之物被理解，已被清晰地看见，以致人们没有借口。
+
+> quibus certiores sunt phantasiae corporum eorum quae sunt, et eis certiora corpora, quae tamen non es.
+
+比起它们，这些存在的属体的影像更为真确，而身体本身又比这些影像更真确，尽管祢不是身体。
+
+> sed nec anima es, quae vita est corporum (ideo melior vita corporum certiorque quam corpora), sed tu vita es animarum, vita vitarum, vivens te ipsa, et non mutaris, vita animae meae.
+
+可祢也不是身体生命的灵魂（因此身体的生命比身体本身更好且更真确），但祢是灵魂的生命，生命的生命。我灵魂的生命啊，祢活在祢自身中，而不被改变。
