@@ -8,3 +8,7 @@
 [^1]: [林后5:6](https://biblehub.com/2_corinthians/5-6.htm) 因此，我们总是信赖，并知道只要我们在身体的家里，我们就远离主。
 
 [^2]: [路15:16](https://biblehub.com/luke/15-16.htm) 他恨不得用猪吃的豆荚填饱肚子，但没有人会给他一点东西。
+
+> quanto enim meliores grammaticorum et poetarum fabellae quam illa decipula! nam versus et carmen et Medea volans utiliores certe quam quinque elementa varie fucata propter quinque antra tenebrarum, quae omnino nulla sunt et occidunt credentem.
+
+而文法家和诗人的神话故事比这些骗人的陷阱好太多了！因为韵文、诗歌以及“美狄亚的飞行”当然比不同着色的五元素对应五个黑暗洞穴更有用，而这些根本不存在而戕害信徒。
