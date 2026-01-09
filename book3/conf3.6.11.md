@@ -11,4 +11,4 @@
 
 > quanto enim meliores grammaticorum et poetarum fabellae quam illa decipula! nam versus et carmen et Medea volans utiliores certe quam quinque elementa varie fucata propter quinque antra tenebrarum, quae omnino nulla sunt et occidunt credentem.
 
-而文法家和诗人的神话故事比这些骗人的陷阱好太多了！因为韵文、诗歌以及“美狄亚的飞行”当然比不同着色的五元素对应五个黑暗洞穴更有用，而这些根本不存在而戕害信徒。
+而文法家和诗人的神话故事比这些骗人的陷阱好太多了！因为韵文、诗歌以及“美狄亚的飞行”当然比不同着色的五元素对应五个黑暗洞穴更有用---这些根本不存在而戕害信徒。
