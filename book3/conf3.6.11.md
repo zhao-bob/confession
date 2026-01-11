@@ -16,3 +16,9 @@
 > nam versum et carmen etiam ad vera pulmenta transfero; volantem autem Medeam etsi cantabam, non adserebam, etsi cantari audiebam, non credebam.
 
 因为我能将韵文和诗歌转化为真正的开胃菜；尽管我也吟诵“美狄亚的飞行”，可我并不认同，而我也听见别人吟诵，但我并不相信。
+
+> illa autem credidi -- vae, vae! quibus gradibus deductus in profunda inferi, quippe laborans et aestuans inopia veri, cum te, deus meus (tibi enim confiteor, qui me miseratus es et nondum confitentem), cum te non secundum intellectum mentis, quo me praestare voluisti beluis, sed secundum sensum carnis quaererem.
+
+然而我却相信了那些骗人的东西---祸哉，祸哉！我一步一步被它们被带入地狱的深渊[^3]，而理所当然地为真理的贫乏而苦劳并煎熬，可我是要寻求祢，我的上帝啊（我向祢忏悔，而即使我未忏悔时祢仍怜悯我），但我寻求祢并未根据心灵的理解---祢希望我靠它胜过野兽，而是根据肉体的感觉。
+
+[^3]: [箴9:18](https://biblehub.com/proverbs/9-18.htm) 但他们不知道死人在那里，她的客人正在阴间的诸渊。
