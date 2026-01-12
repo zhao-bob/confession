@@ -35,4 +35,4 @@
 
 > quae me seduxit, quia invenit foris habitantem in oculo carnis meae et talia ruminantem apud me qualia per illum vorassem.
 
-而她引诱了我，因为她发现我离家住在我肉体的眼睛中，并凭肉眼吞下这样的食物时还在我内心回味。
+而她引诱了我，因为她发现我离家住在我肉体的眼睛中，并凭肉眼吞下这样的食物时还在自己内心回味。
