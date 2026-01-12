@@ -22,3 +22,17 @@
 然而我却相信了那些骗人的东西---祸哉，祸哉！我一步一步被它们被带入地狱的深渊[^3]，而理所当然地为真理的贫乏而苦劳并煎熬，可我是要寻求祢，我的上帝啊（我向祢忏悔，而即使我未忏悔时祢仍怜悯我），但我寻求祢并未根据心灵的理解---祢希望我靠它胜过野兽，而是根据肉体的感觉。
 
 [^3]: [箴9:18](https://biblehub.com/proverbs/9-18.htm) 但他们不知道死人在那里，她的客人正在阴间的诸渊。
+
+> tu autem eras interior intimo meo et superior summo meo. 
+
+但祢是我内在的更深处，而超越我所能及的顶峰。
+
+> offendi illam mulierem audacem, inopem prudentiae, aenigma Salomonis, sedentem super sellam in foribus et dicentem, `panes occultos libenter edite, et aquam dulcem furtivam bibite.'
+
+我却为那所罗门的隐喻中厚颜、缺乏智慧的女人烦扰，她坐在门口的椅子上说，“痛快地吃那隐藏的饼，喝那偷来的甘甜之水。”[^4]
+
+[^4]: [箴9:13](https://biblehub.com/proverbs/9-13.htm) 名为愚顽的女人是喧嚷的；她蒙昧而一无所知。 [14](https://biblehub.com/proverbs/9-14.htm) 她坐在她房子的门口，在城市高处的座位上， [15](https://biblehub.com/proverbs/9-15.htm) 向那些经过的人们高呼，而他们在径直行他们的路径。 [16](https://biblehub.com/proverbs/9-16.htm) “无论谁愚蒙，让他拐进这里。”她对那缺乏判断的人说。 [17](https://biblehub.com/proverbs/9-17.htm) “偷来的水是甜的，而饼暗中吃是美味的。”
+
+> quae me seduxit, quia invenit foris habitantem in oculo carnis meae et talia ruminantem apud me qualia per illum vorassem.
+
+而她引诱了我，因为她发现我离家住在我肉体的眼睛中，并凭肉眼吞下这样的食物时还在我内心回味。
