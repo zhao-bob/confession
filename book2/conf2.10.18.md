@@ -3,7 +3,7 @@
 
 > quis exaperit istam tortuosissimam et implicatissimam nodositatem? foeda est; nolo in eam intendere, nolo eam videre. te volo, iustitia et innocentia pulchra et decora, honestis luminibus et insatiabili satietate.
 
-谁能将那至费解而至晦涩的纠结解开？它是卑污的；我不愿灌注其中，也不愿看它。但我渴慕祢，祢是正义与无辜，美丽而标致，为高尚的眼瞳带来永不满足的满足。
+谁能将那至费解而至晦涩的纠结解开？它是卑污的；我不愿灌注其中，也不愿看它。但我渴慕祢，祢是公义与无辜，美丽而标致，为高尚的眼瞳带来永不满足的满足。
 
 > quies est apud te valde et vita imperturbabilis. qui intrat in te, intrat in gaudium domini sui et non timebit et habebit se optime in optimo.
 
