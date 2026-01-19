@@ -7,6 +7,6 @@
 
 > sed eos ab imperitis iudicari iniquos, iudicantibus ex humano die et universos mores humani generis ex parte moris sui metientibus, tamquam si quis nescius in armamentis quid cui membro adcommodatum sit ocrea velit caput contegi et galea calciari et murmuret, quod non apte conveniat; aut in uno die indicto a promeridianis horis iustitio quisquam stomachetur non sibi concedi quid venale proponere, quia mane concessum est; aut in una domo videat aliquid tractari manibus a quoquam servo quod facere non sinatur qui pocula ministrat, aut aliquid post praesepia fieri quod ante mensam prohibeatur, et indignetur, cum sit unum habitaculum et una familia, non ubique atque omnibus idem tribui.
 
-但平庸之辈论断他们是不义的，这论断出自“人的日子”[^1]，并由自身习俗的偏见衡量全人类的习俗。就好比有人不知道装备库中每个部位适合什么装备，而想用胫甲保护头部而给脚穿上头盔，还抱怨它们适配不到一起；
+但平庸之辈论断他们是不义的，这论断出自“人的日子”[^1]，并由自身习俗的偏见衡量全人类的习俗。就好比有人不知道装备库中每个部位适合什么装备，而想用胫甲保护头部而给脚穿上头盔，还抱怨它们适配不到一起；或是在明令禁止在午后交易的一天，有人对不允许继续售卖而感到狂怒，只因他上午被允许过；或是一人在家中看到某个仆人用手拿着一个物品，而这是管酒具的人不允许做的；
 
 [^1]: 与“主的日子”对应，来自人的判决，见：[林前4:3](https://biblehub.com/1_corinthians/4-3.htm) 尽管如此，我很少关心，如果我由你们或由任何人类法庭判决。事实上，我甚至不判决我自己。
