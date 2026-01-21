@@ -10,3 +10,8 @@
 但平庸之辈论断他们是不义的，这论断出自“人的日子”[^1]，并由自身习俗的偏见衡量全人类的习俗。就好比有人不知道装备库中每个部位适合什么装备，而想用胫甲保护头部而给脚穿上头盔，还抱怨它们适配不到一起；或是在明令禁止在午后交易的一天，有人对不允许继续售卖而感到狂怒，只因他上午被允许过；或是一人在家中看到某个仆人用手拿着一个物品，而这是管酒具的人不允许做的；或是某些事是在马厩后面进行的，而在餐厅里却是被禁止的，而他就义愤，因为在一个住处、一个家庭中，同样的事情并未在所有地方和对所有人都一样被分配。
 
 [^1]: 与“主的日子”对应，来自人的判决，见：[林前4:3](https://biblehub.com/1_corinthians/4-3.htm) 尽管如此，我很少关心，如果我由你们或由任何人类法庭判决。事实上，我甚至不判决我自己。
+
+> sic sunt isti qui indignantur, cum audierint illo saeculo licuisse iustis aliquid quod isto non licet iustis, et quia illis aliud praecepit deus, istis aliud pro temporalibus causis, cum eidem iustitiae utrique servierint, cum in uno homine et in uno die et in unis aedibus videant aliud alii membro congruere, et aliud iam dudum licuisse, post horam non licere, quiddam in illo angulo permitti aut iuberi, quod in isto iuxta vetetur et vindicetur.
+
+于是这些是他们所义愤的：当他们听说在那个时代允许义人做的事情，现在却对义人禁止，并因为上帝因暂时的原因指示一些人这件事，而另一些人那件事，两者却都遵从相同的义，
+
