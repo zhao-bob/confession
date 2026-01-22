@@ -13,5 +13,5 @@
 
 > sic sunt isti qui indignantur, cum audierint illo saeculo licuisse iustis aliquid quod isto non licet iustis, et quia illis aliud praecepit deus, istis aliud pro temporalibus causis, cum eidem iustitiae utrique servierint, cum in uno homine et in uno die et in unis aedibus videant aliud alii membro congruere, et aliud iam dudum licuisse, post horam non licere, quiddam in illo angulo permitti aut iuberi, quod in isto iuxta vetetur et vindicetur.
 
-于是这些是他们所义愤的：当他们听说在那个时代允许义人做的事情，现在却对义人禁止，并因为上帝因暂时的原因指示一些人这件事，而另一些人那件事，两者却都遵从相同的义，
+于是这些是他们所义愤的：当他们听说在那个时代允许义人做的事情，现在却对义人禁止；并因为上帝因暂时的原因指示一些人这件事，而另一些人那件事，两者却都遵从相同的公义；当他们看见在一个人上、在一天、在一个家室中，不同的事情适合不同的成员；而之前到现在都被允许的事，一小时后就不被允许；在一个角落被准许或命令的事，而在旁边另一个角落被禁止并被惩罚。
 
