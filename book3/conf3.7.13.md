@@ -19,3 +19,8 @@
 
 公义怎么可能是多样而可变的？但它所掌管的时代，不是同等进行的，只是因为它们是不同的时代。
 
+> homines autem, quorum vita super terram brevis est, quia sensu non valent causas conexere saeculorum priorum aliarumque gentium, quas experti non sunt, cum his quas experti sunt, in uno autem corpore vel die vel domo facile possunt videre quid cui membro, quibus momentis, quibus partibus personisve congruat, in illis offenduntur, hic serviunt.
+
+但是人们，他们在地上的生命短暂[^2]，他们无能凭感觉将先前世代以及其他民族的事情原因---这些他们从未经历过---与他们已有的那些经验调和起来，而在同一个身体、同一天或同一家中，他们却能很容易看出哪个成员、何时、哪部分角色适合什么，而对这些他们会被触怒，对那些则会顺从。
+
+[^2]: [伯10:20](https://biblehub.com/job/10-20.htm) 我的日子难道不短吗？从我撤离，以使我能有一点安慰， [14:1](https://biblehub.com/job/14-1.htm) “女人生的人，日子短暂，满有烦恼。
