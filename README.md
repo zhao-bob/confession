@@ -87,3 +87,7 @@
 ### [第四章 3. 4. 7](https://zhao-bob.github.io/confession/book3/conf3.4.7)、[3. 4. 8](https://zhao-bob.github.io/confession/book3/conf3.4.8)
 
 ### [第五章 3. 5. 9](https://zhao-bob.github.io/confession/book3/conf3.5.9)
+
+### [第六章 3. 6. 10](https://zhao-bob.github.io/confession/book3/conf3.6.10)、[3. 6. 11](https://zhao-bob.github.io/confession/book3/conf3.6.11)
+
+### [第七章 3. 7. 12](https://zhao-bob.github.io/confession/book3/conf3.7.12)、[3. 7. 13](https://zhao-bob.github.io/confession/book3/conf3.7.13)
