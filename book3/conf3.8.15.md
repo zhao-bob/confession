@@ -5,4 +5,10 @@
 
 是否可能在任何时候或任何地方“用全部的心、全部的灵魂、全部的心灵爱上帝并爱邻如己”[^1]是不公义的？
 
-[^2]: [太22:37](https://biblehub.com/matthew/22-37.htm) 耶稣回复：“‘要用你们所有的心和用你们所有的灵魂和用你们所有的心灵爱主你们的上帝。’ [38](https://biblehub.com/matthew/22-38.htm) 这是第一条也是最大的一条诫命。 [39](https://biblehub.com/matthew/22-39.htm) 第二条与它类似：“爱邻如己。” [40](https://biblehub.com/matthew/22-40.htm) 所有的律法和先知都依悬在这两条诫命上。”
+[^1]: [太22:37](https://biblehub.com/matthew/22-37.htm) 耶稣回复：“‘要用你们所有的心和用你们所有的灵魂和用你们所有的心灵爱主你们的上帝。’ [38](https://biblehub.com/matthew/22-38.htm) 这是第一条也是最大的一条诫命。 [39](https://biblehub.com/matthew/22-39.htm) 第二条与它类似：“爱邻如己。” [40](https://biblehub.com/matthew/22-40.htm) 所有的律法和先知都依悬在这两条诫命上。”
+
+> itaque flagitia quae sunt contra naturam ubique ac semper detestanda atque punienda sunt, qualia Sodomitarum fuerunt. quae si omnes gentes facerent, eodem criminis reatu divina lege tenerentur, quae non sic fecit homines ut se illo uterentur modo.
+
+因为违反本性[^2]的无耻行为，就如索多玛人所为，总是且无处不被憎厌并惩罚。假如所有民族都这样做，他们会被神的律法控告相同的罪行，因为祂这样造人不是让人如此滥用彼此。
+
+[^2]: [罗1:26](https://biblehub.com/romans/1-26.htm) 因为这，上帝把他们弃给了可耻的情欲。甚至他们的女人将正常的性关系换成了非正常的。
