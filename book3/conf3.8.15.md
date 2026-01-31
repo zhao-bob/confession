@@ -19,4 +19,4 @@
 
 > quae autem contra mores hominum sunt flagitia pro morum diversitate vitanda sunt, ut pactum inter se civitatis aut gentis consuetudine vel lege firmatum nulla civis aut peregrini libidine violetur. turpis enim omnis pars universo suo non congruens.
 
-但那些违反人类习俗的耻行要按不同地方的习俗来避免，使得其市民或民族之间通过习惯或法律确立的约定不被市民或外邦人的情欲违背。因为任何不与整体自身和谐的部分都是令人讨厌的。
+但那些违反人类习俗的耻行要按不同地方的习俗来避免，使得其市民或民族之间通过习惯或法律确立的约定不被市民或外邦人的情欲违背。因为所有不与整体自身和谐的部分都是令人讨厌的。
