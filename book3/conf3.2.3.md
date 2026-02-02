@@ -3,7 +3,7 @@
 
 > ergo amantur et dolores. certe omnis homo gaudere vult. an cum miserum esse neminem libeat, libet tamen esse misericordem, quod quia non sine dolore est, hac una causa amantur dolores?
 
-因此悲伤是为人所爱的。可无疑，所有人都想要快乐。或者人们不乐意被痛苦挟持，却乐意发慈悲，而没有悲伤就不存在慈悲，这就是悲伤为人所爱的惟一理由？
+因此悲伤是为人所爱的。可无疑，所有人都想要快乐。或者人们不乐意被痛苦挟持，却乐意发慈悲，而没有悲伤就不存在慈悲，这就是悲伤为人所爱的惟一理由？s
 
 > et hoc de illa vena amicitiae est. sed quo vadit? quo fluit? ut quid decurrit in torrentem picis bullientis, aestus immanes taetrarum libidinum, in quos ipsa mutatur et vertitur per nutum proprium de caelesti serenitate detorta atque deiecta?
 
@@ -40,6 +40,3 @@
 
 [^4]: [弗3:18](https://biblehub.com/ephesians/3-18.htm) 有权柄，与主所有圣民一起，去领会基督的爱是多么宽广、长久、高远与深厚，
 [^5]: [林后2:16](https://biblehub.com/2_corinthians/2-16.htm) 我们对一个是带来死亡的芬芳；对另一个，是一种带来生命的芬芳。而谁适配这样一个任务？
-
-
-
