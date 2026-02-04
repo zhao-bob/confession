@@ -90,4 +90,6 @@
 
 ### [第六章 3. 6. 10](https://zhao-bob.github.io/confession/book3/conf3.6.10)、[3. 6. 11](https://zhao-bob.github.io/confession/book3/conf3.6.11)
 
-### [第七章 3. 7. 12](https://zhao-bob.github.io/confession/book3/conf3.7.12)、[3. 7. 13](https://zhao-bob.github.io/confession/book3/conf3.7.13)
+### [第七章 3. 7. 12](https://zhao-bob.github.io/confession/book3/conf3.7.12)、[3. 7. 13](https://zhao-bob.github.io/confession/book3/conf3.7.13)、[3. 7. 14](https://zhao-bob.github.io/confession/book3/conf3.7.14)
+
+### [第八章 3. 8. 15](https://zhao-bob.github.io/confession/book3/conf3.8.15)
