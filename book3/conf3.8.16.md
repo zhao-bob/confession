@@ -10,3 +10,11 @@
 这些是罪邪之首，萌发自掌控的欲望、眼目的贪念和肉体的情欲，或者单独出现，也可能两者结合，或三者皆有；因而生活邪恶之人反对祢、至高而至甘甜的上帝的十诫中那三条对祢的诫命、以及那七条对同胞的诫命，而这些合在一起是一部和谐的十弦琴[^1]。
 
 [^1]: [诗92:1](https://biblehub.com/psalms/92-1.htm) 一首诗篇。一首安息日的歌。赞美耶和华，至高者啊，向祢的名歌唱赞美是美好的， [2](https://biblehub.com/psalms/92-2.htm) 在早晨宣布祢的慈爱而在晚上宣布祢的信实， [3](https://biblehub.com/psalms/92-3.htm) 伴随着十弦琴和里拉琴的旋律。
+
+> sed quae flagitia in te, qui non corrumperis? aut quae adversus te facinora, cui noceri non potest? 
+
+但祢是永不败坏的，那么有什么耻行在祢里面？或者祢无法被伤害，又有什么罪行能针对祢？
+
+> sed hoc vindicas quod in se homines perpetrant, quia etiam cum in te peccant, impie faciunt in animas suas, et mentitur iniquitas sibi sive corrumpendo ac pervertendo naturam suam, quam tu fecisti et ordinasti, vel immoderate utendo concessis rebus, vel in non concessa flagrando in eum usum qui est contra naturam.
+
+而祢的报复是使人类自作自受，因为即使当他们对祢犯罪，他们亵渎的行为也在干犯他们自身的灵魂，
