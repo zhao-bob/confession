@@ -17,4 +17,4 @@
 
 > sed hoc vindicas quod in se homines perpetrant, quia etiam cum in te peccant, impie faciunt in animas suas, et mentitur iniquitas sibi sive corrumpendo ac pervertendo naturam suam, quam tu fecisti et ordinasti, vel immoderate utendo concessis rebus, vel in non concessa flagrando in eum usum qui est contra naturam.
 
-而祢的报复是使人类自作自受，因为即使当他们对祢犯罪，他们亵渎的行为也在干犯他们自身的灵魂，
+而祢的报复是使人类自作自受，因为即使当他们对祢犯罪，他们亵渎的行为也在干犯他们自身的灵魂。而当他们败坏或扭曲他们由祢制造并排定的本性时，或者当他们无度利用被允许的事情时，或者当对不被允许的事情，他们为那些违反本性的使用燃烧时，罪邪就对自身撒谎。
