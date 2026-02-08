@@ -21,6 +21,6 @@
 
 > aut rei tenentur animo et verbis saevientes adversus te et adversus stimulum calcitrantes, aut cum diruptis limitibus humanae societatis laetantur audaces privatis conciliationibus aut diremptionibus, prout quidque delectaverit aut offenderit.
 
-或者他们负有罪行而在灵魂和言语上对祢怀有盛怒，并忤逆棍棒[^2]；
+或者他们负有罪行而在灵魂和言语上对祢怀有盛怒，并忤逆棍棒[^2]；或者当他们堂而皇之地以瓦解人类社会底线为乐，以私意联合或分裂，全凭各人的喜好或厌恶。
 
 [^2]: [徒26:14](https://biblehub.com/acts/26-14.htm) 我们都倒在地上，而我听见一个话音用希伯来语对我说：“扫罗，扫罗，你为什么逼迫我？你难以忤逆棍棒。”
