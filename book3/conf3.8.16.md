@@ -30,3 +30,11 @@
 而这些就是他们的所作所为，当祢，生命的源泉[^3]被抛弃，而祢是宇宙惟一而永真的造物主和统治者，而人们却凭私意的傲慢偏爱虚假的一体。
 
 [^3]: [诗36:9](https://biblehub.com/psalms/36-9.htm) 因为与祢同在是生命的源泉；在祢的光中我们看见光明。
+
+> itaque pietate humili reditur in te, et purgas nos a consuetudine mala, et propitius es peccatis confitentium, et exaudis gemitus compeditorum, et solvis a vinculis quae nobis fecimus, si iam non erigamus adversus te cornua falsae libertatis, avaritia plus habendi et damno totum amittendi, amplius amando proprium nostrum quam te, omnium bonum.
+
+由此，由谦卑的虔敬我们就回归祢，而祢将我们从恶习中洁净，并且祢宽容忏悔者的罪恶[^4]，而聆听囚徒的叹息[^5]，并解开我们为自己制造的枷锁，
+
+[^4]: [诗78:38](https://biblehub.com/psalms/78-38.htm) 然而祂满有怜悯；祂饶恕他们的罪邪而不摧毁他们。祂经常约束祂的愤怒而不发泄祂的全部忿怒。
+
+[^5]: [诗102:20](https://biblehub.com/psalms/102-20.htm) 来聆听囚徒的叹息，释放那些判处死刑的人。
