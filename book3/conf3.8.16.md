@@ -33,7 +33,7 @@
 
 > itaque pietate humili reditur in te, et purgas nos a consuetudine mala, et propitius es peccatis confitentium, et exaudis gemitus compeditorum, et solvis a vinculis quae nobis fecimus, si iam non erigamus adversus te cornua falsae libertatis, avaritia plus habendi et damno totum amittendi, amplius amando proprium nostrum quam te, omnium bonum.
 
-由此，由谦卑的虔敬我们就回归祢，而祢将我们从恶习中洁净，并且祢宽容忏悔者的罪恶[^4]，而聆听囚徒的叹息[^5]，并解开我们为自己制造的枷锁，只要我们未曾立起虚假自由的犄角[^6]来对抗祢，以占有更多的贪婪和失去所有的祸失，爱我们的私心胜过爱祢，万物之善。
+由此，由谦卑的虔敬我们就回归祢，而祢将我们从恶习中洁净，并且祢宽容忏悔者的罪恶[^4]，而聆听囚徒的叹息[^5]，并解开我们为自己制造的枷锁，只要我们未曾立起虚假自由的犄角[^6]来对抗祢---以占有更多的贪婪，爱我们胜过爱祢，万物之善的私心，遭受失去所有的祸失。
 
 [^4]: [诗78:38](https://biblehub.com/psalms/78-38.htm) 然而祂满有怜悯；祂饶恕他们的罪邪而不摧毁他们。祂经常约束祂的愤怒而不发泄祂的全部忿怒。
 
