@@ -12,3 +12,11 @@
 > multa itaque facta quae hominibus improbanda viderentur testimonio tuo approbata sunt, et multa laudata ab hominibus te teste damnantur, cum saepe se aliter habet species facti et aliter facientis animus atque articulus occulti temporis.
 
 于是，有许多行为在人看来不被赞许，却被祢的见证称赞，也有许多行为被人们赞美却因祢是证人而被咒诅，因为时常行为的表面有一面，而行为的意图却完全是另一面，并且当时的关键因素也不为人知。
+
+> cum vero aliquid tu repente inusitatum et improvisum imperas, etiamsi hoc aliquando vetuisti, quamvis causam imperii tui pro tempore occultes et quamvis contra pactum sit aliquorum hominum societatis, quis dubitet esse faciendum, quando ea iusta est societas hominum quae servit tibi?
+
+的确，当祢有时突然下旨反常而出乎意料的事情，即使祢在某时已将其禁止，虽然祢一时隐藏祢的诏令的原因，并且尽管它某种程度上违反人类社会的准则，而谁会迟疑去成就它？任何时候只有服侍祢的人类社会才是公义的。
+
+> sed beati qui te imperasse sciunt. fiunt enim omnia a servientibus tibi, vel ad exhibendum quod ad praesens opus est, vel ad futura praenuntianda.
+
+但那些知道祢下旨的人是有福的。因为他们作为仆人为祢完成的一切，要么为揭示当前的工作是什么，要么为预表未来。
