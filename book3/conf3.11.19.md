@@ -16,3 +16,10 @@
 > nam unde illud somnium quo eam consolatus es, ut vivere mecum cederet et habere mecum eandem mensam in domo? (quod nolle coeperat aversans et detestans blasphemias erroris mei.)
 
 不然那个祢用来安慰她的梦从何而来，以致她准予我与她一起生活并在家中同一餐桌上吃饭？（在对我错谬亵渎的反感与厌恶中，她已开始不愿同我做这些。）
+
+> vidit enim se stantem in quadam regula lignea et advenientem ad se iuvenem splendidum hilarem atque arridentem sibi, cum illa esset maerens et maerore confecta.
+
+而她看见她自己站在某个木轨上而一位神采奕奕的少年走向她并高兴地对她微笑，而那时她正哀伤而悲痛欲绝[^3]。
+
+[^2]: [哀1:13](https://biblehub.com/lamentations/1-13.htm) “祂从高处降下火焰，而它制服了我的骨头。祂为我脚撒下网并使我回转。祂使我荒芜，终日昏厥。
+
