@@ -11,6 +11,6 @@
 
 > nam novem ferme anni secuti sunt quibus ego in illo limo profundi ac tenebris falsitatis, cum saepe surgere conarer et gravius alliderer, volutatus sum, cum tamen illa vidua casta, pia et sobria, quales amas, iam quidem spe alacrior, sed fletu et gemitu non segnior, non desineret horis omnibus orationum suarum de me plangere ad te, et intrabant in conspectum tuum preces eius, et me tamen dimittebas adhuc volvi et involvi illa caligine.
 
-因为随后有将近九年的时间，我陷入那深坑的泥潭和错谬的黑暗[^1]中。尽管我时常尝试爬起来，但却被更重地击倒而沉溺其中。
+因为随后有将近九年的时间，我陷入那深坑的泥潭和错谬的黑暗[^1]中。尽管我时常尝试爬起来，但却被更重地击倒而沉溺其中。尽管如此，那位贞洁、虔诚而清醒的寡妇---祢爱的正是此类人，无疑在那时已欣然在这希望中，
 
 [^1]: [诗69:14](https://biblehub.com/psalms/69-14.htm) 从泥潭中营救我而不要让我沉没；将我从我敌人的手中解救并脱离深水。
