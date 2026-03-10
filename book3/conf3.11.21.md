@@ -12,3 +12,7 @@
 > quem cum illa femina rogasset ut dignaretur mecum conloqui et refellere errores meos et dedocere me mala ac docere bona (faciebat enim hoc, quos forte idoneos invenisset), noluit ille, prudenter sane, quantum sensi postea.
 
 当这个妇人乞求他考虑与我对话，驳斥我的谬误并教导我去恶从善（因为这是他遇到适合的人愿意做的事情）时，他却拒绝她，我后来才明白这是多么审慎而明智。
+
+> respondit enim me adhuc esse indocilem, eo quod inflatus essem novitate haeresis illius et nonnullis quaestiunculis iam multos imperitos exagitassem, sicut illa indicaverat ei.
+
+而他回应说我仍然不可教，因为正如她已告知他的，我被那些异端的新奇冲昏头脑，并已经用一些刁钻的问题搅扰许多没有经验的人。
