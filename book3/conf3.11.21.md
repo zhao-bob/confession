@@ -16,3 +16,7 @@
 > respondit enim me adhuc esse indocilem, eo quod inflatus essem novitate haeresis illius et nonnullis quaestiunculis iam multos imperitos exagitassem, sicut illa indicaverat ei.
 
 而他回应说我仍然不可教，因为正如她已告知他的，我被那些异端的新奇冲昏头脑，并已经用一些刁钻的问题搅扰许多没有经验的人。
+
+> 'sed inquit sine illum ibi. tantum roga pro eo dominum. ipse legendo reperiet quis ille sit error et quanta impietas.'
+
+“就随他去，”他说，“只要为他向主如此恒切祷告。他通过阅读自己就会发现其谬误是什么，而其渎神有多么巨大。
