@@ -20,3 +20,7 @@
 > 'sed inquit sine illum ibi. tantum roga pro eo dominum. ipse legendo reperiet quis ille sit error et quanta impietas.'
 
 “就随他去，”他说，“只要为他向主如此恒切祷告。他通过阅读自己就会发现其谬误是什么，而其渎神有多么巨大。
+
+> simul etiam narravit se quoque parvulum a seducta matre sua datum fuisse manichaeis, et omnes paene non legisse tantum verum etiam scriptitasse libros eorum, sibique apparuisse nullo contra disputante et convincente quam esset illa secta fugienda: itaque fugisse.
+
+同时他还告诉她，他自己年幼时就被自己受迷惑的母亲送给摩尼教徒，而不仅读而且还写了他们几乎所有的书，
