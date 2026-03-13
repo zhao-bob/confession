@@ -23,4 +23,4 @@
 
 > simul etiam narravit se quoque parvulum a seducta matre sua datum fuisse manichaeis, et omnes paene non legisse tantum verum etiam scriptitasse libros eorum, sibique apparuisse nullo contra disputante et convincente quam esset illa secta fugienda: itaque fugisse.
 
-同时他还告诉她，他自己年幼时就被自己受迷惑的母亲送给摩尼教徒，而不仅读而且还写了他们几乎所有的书，
+同时他还告诉她，他自己年幼时就被自己受迷惑的母亲送给摩尼教徒，而不仅读而且还抄写了他们几乎所有的书，而既无人与他争辩，也无人说服他，他自己就发觉这个教派必须要远离：于是他就远离了它。
