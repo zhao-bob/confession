@@ -18,3 +18,7 @@
 [^2]: [诗106:47](https://biblehub.com/psalms/106-47.htm) 主我们的上帝啊，请拯救我们，并将我们从列邦中聚集，以使我们能将感谢献给祢的圣名，以使我们能在赞美祢中荣耀。
 
 > sine me, obsecro, et da mihi circuire praesenti memoria praeteritos circuitus erroris mei et immolare tibi hostiam iubilationis.
+
+我恳求祢，请允许我并准予我在当前的记忆中搜寻我过去错误的曲折，以向祢献上欢呼的活祭[^3]。
+
+[^3]: [诗27:6](https://biblehub.com/psalms/27-6.htm) 然后我的头会昂起到我周围的敌人之上。在祂的会幕中，我会以喜乐的呼声献上祭物；我会向耶和华歌唱并奏乐。
