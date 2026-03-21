@@ -22,3 +22,10 @@
 我恳求祢，请允许我并准予我在当前的记忆中搜寻我过去错误的曲折，以向祢献上欢呼的活祭[^3]。
 
 [^3]: [诗27:6](https://biblehub.com/psalms/27-6.htm) 然后我的头会昂起到我周围的敌人之上。在祂的会幕中，我会以喜乐的呼声献上祭物；我会向耶和华歌唱并奏乐。
+
+> quid enim sum ego mihi sine te nisi dux in praeceps? aut quid sum, cum mihi bene est, nisi sugens lac tuum aut fruens te, cibo qui non corrumpitur?
+
+因为没有祢，我除了是一个将自己引入毁灭深渊的向导外，对于我自己算什么呢？或者即便我对自己是善的，除了吮吸祢的乳汁或享有祢，这不朽的食物[^4]外，我又算什么呢？
+
+[^4]: [约6:27](https://biblehub.com/john/6-27.htm) 不要为必腐坏的食物工作，而要为人子会赐给你们的存续到永生的食物工作。因为上帝圣父在祂身上已盖上祂的认可之印。
+
