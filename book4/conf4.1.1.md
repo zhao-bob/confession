@@ -25,7 +25,15 @@
 
 > quid enim sum ego mihi sine te nisi dux in praeceps? aut quid sum, cum mihi bene est, nisi sugens lac tuum aut fruens te, cibo qui non corrumpitur?
 
-因为没有祢，我除了是一个将自己引入毁灭深渊的向导外，对于我自己算什么呢？或者即便我对自己是善的，除了吮吸祢的乳汁或享有祢，这不朽的食物[^4]外，我又算什么呢？
+因为没有祢，我除了是一个将自己引入毁灭深渊的向导外，对于我自己算什么呢？或者即便我一切安好，除了吮吸祢的乳汁或享有祢，这不朽的食物[^4]外，我又算什么呢？
 
 [^4]: [约6:27](https://biblehub.com/john/6-27.htm) 不要为必腐坏的食物工作，而要为人子会赐给你们的存续到永生的食物工作。因为上帝圣父在祂身上已盖上祂的认可之印。
+
+> et quis homo est quilibet homo, cum sit homo? sed inrideant nos fortes et potentes, nos autem infirmi et inopes confiteamur tibi.
+
+而一个人仅仅是一个人的时候，一个人到底是什么呢？就让那些有权有势的人[^5]嘲笑我们，好让我们在软弱与贫乏[^6]中向祢忏悔。
+
+[^5]: [林前4:10](https://biblehub.com/1_corinthians/4-10.htm) 我们为基督成为蠢人，但你们在基督中是聪明的。我们软弱，但你们强壮。你们被尊敬，但我们被羞辱。
+
+[^6]: [诗74:21](https://biblehub.com/psalms/74-21.htm) 不要让受压迫的人在耻辱中退缩；愿贫穷而贫困的人赞美祢的名。
 
