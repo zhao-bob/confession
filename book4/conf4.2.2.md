@@ -14,3 +14,7 @@
 而上帝啊，祢从远处已看见我失足跌入湿滑的道路中以及我在浓烟中发出的点点忠诚的火花，我在教书中将其展示给那些热爱虚荣而寻求谎言的人们[^1]，而我就是他们的同伴。
 
 [^1]: [诗4:2](https://biblehub.com/psalms/4-2.htm) 人啊，我的尊贵会被诋毁多久？你们会爱虚荣并追寻谎言多久？ 
+
+> in illis annis unam habebam non eo quod legitimum vocatur coniugio cognitam, sed quam indagaverat vagus ardor inops prudentiae,
+
+在那些年，我有一个女人，而我与她不是那种被称为合法的公认的婚姻关系，而是我放荡不羁的激情、匮乏的智慧搜寻到了她。
