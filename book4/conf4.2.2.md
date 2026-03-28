@@ -17,4 +17,8 @@
 
 > in illis annis unam habebam non eo quod legitimum vocatur coniugio cognitam, sed quam indagaverat vagus ardor inops prudentiae,
 
-在那些年，我有一个女人，而我与她不是那种被称为合法的公认的婚姻关系，而是我放荡不羁的激情、匮乏的智慧搜寻到了她。
+在那些年，我有一个女人，而我与她不是那种被称为合法的公认的婚姻关系，而是放荡不羁的激情、匮乏的智慧使我搜寻到了她。
+
+> sed unam tamen, ei quoque servans tori fidem, in qua sane experirer exemplo meo quid distaret inter coniugalis placiti modum, quod foederatum esset generandi gratia, et pactum libidinosi amoris, ubi proles etiam contra votum nascitur, quamvis iam nata cogat se diligi.
+
+尽管如此，她是我惟一的女人，而我对她保持着忠诚。而我由与她一起的经历亲身体会到这与婚姻中自愿的约束存在着巨大的差异。婚姻的联盟为了生儿育女，而我们则是爱欲的交易，可孩子仍违反我们的意志出生。而一旦他们出生，父母就被迫去爱他们。
