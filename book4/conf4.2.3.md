@@ -10,3 +10,7 @@
 因为他在他的献祭中杀生，并通过那些敬献似乎能招聚恶魔来护佑我。但我内心的上帝啊[^1]，我拒斥这种邪恶并非出自祢的纯洁。
 
 [^1]: [诗73:26](https://biblehub.com/psalms/73-26.htm) 我的肉体和我的内心可能会衰亡，但上帝却永远是我内心的力量和我的福分。
+
+> non enim amare te noveram, qui nisi fulgores corporeos cogitare non noveram.
+
+我根本不知道要如何去爱祢，因为关于祢，除了发光的物体，我不知道该如何理解。
