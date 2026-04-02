@@ -107,3 +107,5 @@
 这是他在摩尼教徒中度过的岁月的故事。它包括他在塔加斯特的教学经历，他与一位姘妇生活，并迷恋占星术。而一位朋友逝去的沉痛，引发了他对悲伤和短暂的深入分析。他还讲述了自己的第一本书《论美与适宜》（De pulchro et apto），以及他对亚里士多德《范畴篇》和其他哲学及神学著作的接触，这些书他很轻松地掌握了，但收获不大。
 
 ### [第一章 4. 1. 1](https://zhao-bob.github.io/confession/book4/conf4.1.1)
+
+### [第一章 4. 2. 2](https://zhao-bob.github.io/confession/book4/conf4.2.2)、[4. 2. 3](https://zhao-bob.github.io/confession/book4/conf4.2.3)
