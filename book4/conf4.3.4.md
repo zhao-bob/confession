@@ -7,6 +7,8 @@
 
 > quod tamen christiana et vera pietas consequenter repellit et damnat. bonum est enim confiteri tibi, domine, et dicere, 'miserere mei: cura animam meam, quoniam peccavi tibi,' neque ad licentiam peccandi abuti indulgentia tua, sed meminisse dominicae vocis: `ecce sanus factus es; iam noli peccare, ne quid tibi deterius contingat.'
 
-然而真正属基督的虔敬自始至终排斥并咒诅这种技艺。为此，主啊，向祢忏悔是善的，并要说，“请宽恕我：治愈我的灵魂，因为我已对祢犯罪”[^1]。
+然而真正属基督的虔敬自始至终排斥并咒诅这种技艺。为此，主啊，向祢忏悔是善的，并要说，“请宽恕我：治愈我的灵魂，因为我已对祢犯罪”[^1],而不要滥用祢的宠溺而将其作为犯罪的许可，而要牢记主的话语：“看啊，你已完全康复；现在起不要犯罪，否则更恶的事情可能临到你。”[^2]
 
 [^1]: [诗41:4](https://biblehub.com/psalms/41-4.htm) 我说，“主啊，请对我仁慈；治愈我，因为我已对祢犯罪。”
+
+[^2]: [约5:14](https://biblehub.com/john/5-14.htm) 之后耶稣在神殿发现了他并对他说，“看，你已完全康复；停止犯罪否则更恶的事情可能临到你。”
