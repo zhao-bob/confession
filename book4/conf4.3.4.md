@@ -18,3 +18,11 @@
 而他们却通过这样的话试图摧毁这全整的救赎药方：“你犯罪原因必然是天定的”以及“这是金星或土星或火星造成的”。这些必然使一个人免除罪责，让一个带着腐臭骄傲的血肉之躯[^3]将罪归咎于天与星宿的造物主和处置者。
 
 [^2]: [太16:17](https://biblehub.com/matthew/16-17.htm) 耶稣回复，“约拿的儿子西门，你是有福的！因为这不是由血肉之躯启示给你的，而是由我在天国的圣父。 [林前15:50](https://biblehub.com/1_corinthians/15-50.htm) 弟兄们，现在我向你们宣告，血肉之躯不能继承上帝的国度，易灭的也不能继承不灭的。
+
+> et quis est hic nisi deus noster, suavitas et origo iustitiae, qui reddes unicuique secundum opera eius et cor contritum et humilatum non spernis?
+
+而这除了我们的上帝之外，会是谁呢？祂是甜蜜和正义的源头，祂按各人的事迹报应各人[^3]而不轻视一颗痛悔而谦卑的心[^4]。
+
+[^3]: [诗62:12](https://biblehub.com/psalms/62-12.htm) 而慈爱也属于祢，主啊。祢会按各人的事迹报应各人。 [罗2:6](https://biblehub.com/romans/2-6.htm) 上帝“会按各人的事迹报应各人。”
+
+[^4]: [诗51:17](https://biblehub.com/psalms/51-17.htm) 属上帝的献祭是一个破碎的灵；上帝啊，一颗破碎而痛悔的心，祢不会轻视。
