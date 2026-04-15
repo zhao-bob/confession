@@ -13,4 +13,4 @@
 
 > quia enim factus ei eram familiarior et eius sermonibus (erant enim sine verborum cultu vivacitate sententiarum iucundi et graves) adsiduus et fixus inhaerebam, ubi cognovit ex conloquio meo libris genethliacorum esse me deditum, benigne ac paterne monuit ut eos abicerem neque curam et operam rebus utilibus necessariam illi vanitati frustra impenderem, dicens ita se illa didicisse ut eius professionem primis annis aetatis suae deferre voluisset qua vitam degeret et, si Hippocraten intellexisset, et illas utique litteras potuisse intellegere;
 
-因为我变得与他熟悉并专心致志、固定地倾听他的讲演（他的风格尽管没有华丽的用词，但让人感到生动、引人入胜而严肃）。他从与我的谈话中得知我热衷于占星术的书籍，他就亲切而慈父般地提醒我丢弃它们而不要将本该用在有益事情上必要的注意力和精力无谓地耗在这些虚空之上。
+因为我变得与他熟悉并专心致志、固定地倾听他的讲演（他的风格尽管没有华丽的用词，但让人感到生动、引人入胜而严肃）。他从与我的谈话中得知我热衷于占星术的书籍，他就亲切而慈父般地提醒我丢弃它们而不要将本该用在有益事情上必要的注意力和精力无谓地耗在这些虚空之上。他说他自己曾学过占星术以致早年期间他打算以其作为谋生的职业，而如果他能理解希波克拉底，那么理解这些文字当然不在话下。
