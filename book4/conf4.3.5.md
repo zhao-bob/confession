@@ -14,3 +14,7 @@
 > quia enim factus ei eram familiarior et eius sermonibus (erant enim sine verborum cultu vivacitate sententiarum iucundi et graves) adsiduus et fixus inhaerebam, ubi cognovit ex conloquio meo libris genethliacorum esse me deditum, benigne ac paterne monuit ut eos abicerem neque curam et operam rebus utilibus necessariam illi vanitati frustra impenderem, dicens ita se illa didicisse ut eius professionem primis annis aetatis suae deferre voluisset qua vitam degeret et, si Hippocraten intellexisset, et illas utique litteras potuisse intellegere; et tamen non ob aliam causam se postea illis relictis medicinam adsecutum, nisi quod eas falsissimas comperisset et nollet vir gravis decipiendis hominibus victum quaerere.
 
 因为我变得与他熟悉并专心致志、固定地聆听他的讲演（他的风格尽管没有华丽的用词，但让人感到生动、引人入胜而严肃）。他从与我的谈话中得知我热衷于占星术的书籍，他就亲切而慈父般地提醒我丢弃它们而不要将本该用在有益事情上必要的注意力和精力无谓地耗在这些虚空之上。他说他自己曾学过占星术以致早年期间他打算以其作为谋生的职业，而如果他能理解希波克拉底，那么理解这些文字当然不在话下。然而之后，除了发现占星术是完全荒谬的之外而没有其他原因，他就放弃了它转而追求医术，而作为一个谨肃的人，他不愿靠欺骗人来营生。
+
+> 'at tu' inquit 'quo te in hominibus sustentas, rhetoricam tenes, hanc autem fallaciam libero studio, non necessitate rei familiaris, sectaris. quo magis mihi te oportet de illa credere, qui eam tam perfecte discere elaboravi, quam ex ea sola vivere volui.'
+
+“而你”他说，“你掌握修辞学，以此你就能在人中立足，但你追求这种鬼把戏只是出自自由的热情，而不是贴补家用的急需。你有必要更加相信我在这件事上的观点，因为我曾努力去彻底学会它，以致于我希望完全凭它来生活。”
