@@ -18,3 +18,7 @@
 > 'at tu' inquit 'quo te in hominibus sustentas, rhetoricam tenes, hanc autem fallaciam libero studio, non necessitate rei familiaris, sectaris. quo magis mihi te oportet de illa credere, qui eam tam perfecte discere elaboravi, quam ex ea sola vivere volui.'
 
 “而你”他说，“你掌握修辞学，以此你就能在人中立足，但你追求这种鬼把戏只是出自自由的热情，而不是贴补家用的急需。你有必要更加相信我在这件事上的观点，因为我曾努力去彻底学会它，以致于我希望完全凭它来生活。”
+
+> a quo ego cum quaesissem quae causa ergo faceret ut multa inde vera pronuntiarentur, respondit ille ut potuit, vim sortis hoc facere in rerum natura usquequaque diffusam.
+
+而当我向他询问什么原因使许多事情被占星术正确预言时，他尽他所能回答我说：这是由那无处不在的偶然的力量，弥漫于事物本性之中，促成这一结果。
