@@ -22,3 +22,8 @@
 > a quo ego cum quaesissem quae causa ergo faceret ut multa inde vera pronuntiarentur, respondit ille ut potuit, vim sortis hoc facere in rerum natura usquequaque diffusam.
 
 而当我向他询问什么原因使许多事情被占星术正确预言时，他尽他所能回答我说：这是由那无处不在的偶然的力量，弥漫于事物本性之中，促成这一结果。
+
+> si enim de paginis poetae cuiuspiam longe aliud canentis atque intendentis, cum forte quis consulit, mirabiliter consonus negotio saepe versus exiret, mirandum non esse dicebat si ex anima humana superiore aliquo instinctu nesciente quid in se fieret, non arte sed sorte, sonaret aliquid quod interrogantis rebus factisque concineret.
+
+因此，当某个人碰巧翻阅到某页诗，而诗人在其中吟唱与思考的是完全不同的事，可这些诗句却经常奇迹般变得与当前境遇契合。他说如果从一个人的灵魂，由某种不知道自身如何运行的更高本能讲出某些话并不稀奇。因为这不是靠技艺，而是靠与求问者的事务或行为产生共鸣的偶然。
+
