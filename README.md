@@ -108,4 +108,8 @@
 
 ### [第一章 4. 1. 1](https://zhao-bob.github.io/confession/book4/conf4.1.1)
 
-### [第一章 4. 2. 2](https://zhao-bob.github.io/confession/book4/conf4.2.2)、[4. 2. 3](https://zhao-bob.github.io/confession/book4/conf4.2.3)
+### [第二章 4. 2. 2](https://zhao-bob.github.io/confession/book4/conf4.2.2)、[4. 2. 3](https://zhao-bob.github.io/confession/book4/conf4.2.3)
+
+### [第三章 4. 3. 4](https://zhao-bob.github.io/confession/book4/conf4.3.4)、[4. 3. 5](https://zhao-bob.github.io/confession/book4/conf4.3.5)、[4. 3. 6](https://zhao-bob.github.io/confession/book4/conf4.3.6)
+
+### [第四章 4. 4. 7](https://zhao-bob.github.io/confession/book4/conf4.4.7)
