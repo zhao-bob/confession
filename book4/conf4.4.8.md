@@ -8,3 +8,7 @@
 [^1]: [诗106:2](https://biblehub.com/psalms/106-2.htm) 谁能描述耶和华的大能作为，或尽述祂的赞美？
 
 [^2]: [罗11:33](https://biblehub.com/romans/11-33.htm) 深哉，上帝智慧和知识的丰富！祂的判断何其难测，而祂的路径超出追踪！
+
+> cum enim laboraret ille febribus, iacuit diu sine sensu in sudore laetali et, cum desperaretur, baptizatus est nesciens, me non curante et praesumente id retinere potius animam eius quod a me acceperat, non quod in nescientis corpore fiebat.
+
+当他高烧病重，长时间毫无知觉地躺在要命的汗水中，而当人们对他的生命绝望时，他在无意识的情况下受了洗。我对此毫不在意，而预想他的灵魂只会坚持那些接收来自我的东西，而不是那些在他无意识时对他身体所做的事情。
