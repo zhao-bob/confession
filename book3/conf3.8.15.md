@@ -31,4 +31,6 @@
 
 > sicut enim in potestatibus societatis humanae maior potestas minori ad oboediendum praeponitur, ita deus omnibus.
 
-正如在人类社会的权力中，顺服更大的权力优先于较小的权力，那么顺服上帝就优先于一切。
+正如在人类社会的权力中，顺服更大的权力优先于较小的权力[^3]，那么顺服上帝就优先于一切。
+
+[^3]: [罗13:1](https://biblehub.com/romans/13-1.htm) 让每个人顺从治理权威，因为除了上帝已确立的外，没有其他权威。现存的权威已被上帝确立。
