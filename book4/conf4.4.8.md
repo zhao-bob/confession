@@ -17,8 +17,9 @@
 
 因为他复苏了并恢复了健康，而立刻，我第一时间能与他交谈（我能在他能讲话时立即这么做，是因为我从未离开他身边，而我们紧密地彼此相依）时，我试图在他面前调侃，以为他也会与我一起调侃那在他心灵与知觉都不在场时接受的洗礼，然而他却已经知晓自己已领受那圣礼。
 
-> at ille ita me exhorruit ut inimicum admonuitque mirabili et repentina libertate ut, si amicus esse vellem, talia sibi dicere desinerem. 
+> at ille ita me exhorruit ut inimicum admonuitque mirabili et repentina libertate ut, si amicus esse vellem, talia sibi dicere desinerem.
 
+而他却对我如此惊惧，仿佛我是敌人一般，并以一种惊人而突如其来的莽撞告诫我：如果我愿意做他的朋友，我就必须停止对他说这类事情。
 
 > ego autem stupefactus atque turbatus distuli omnes motus meos, ut convalesceret prius essetque idoneus viribus valetudinis, cum quo agere possem quod vellem. 
 
