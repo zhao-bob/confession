@@ -27,4 +27,4 @@
 
 > sed ille abreptus dementiae meae, ut apud te servaretur consolationi meae. post paucos dies me absente repetitur febribus et defungitur.
 
-但他却被夺走而远离了我的精神错乱，以使他能与祢同在而被保守成为我的慰藉。几天之后，我不在的时候，他高烧复发而逝世。
+但他却被夺走而远离了我的精神错乱，以使他能与祢同在而被保守成为我的慰藉。几天之后，我不在他身边时，他高烧复发而逝世。
