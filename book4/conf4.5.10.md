@@ -11,6 +11,8 @@
 
 > an tu, quamvis ubique adsis, longe abiecisti a te miseriam nostram, et tu in te manes, nos autem in experimentis volvimur? et tamen nisi ad aures tuas ploraremus, nihil residui de spe nostra fieret. 
 
+或者祢，尽管无处不在，却将我们的痛苦遗弃而远离祢，而祢留存在祢自己里面，而我们则在各种试炼中翻滚？然而除非我们向着祢的耳朵哭喊，我们的希望就不会有任何残存。
+
 > unde igitur suavis fructus de amaritudine vitae carpitur, gemere et flere et suspirare et conqueri? an hoc ibi dulce est, quod speramus exaudire te? recte istuc in precibus, quia desiderium perveniendi habent. 
 
 
