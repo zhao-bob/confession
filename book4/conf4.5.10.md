@@ -15,7 +15,7 @@
 
 > unde igitur suavis fructus de amaritudine vitae carpitur, gemere et flere et suspirare et conqueri? an hoc ibi dulce est, quod speramus exaudire te? recte istuc in precibus, quia desiderium perveniendi habent. 
 
-那么从生命的苦涩中怎么能以呻吟、哭泣、叹息和悲悼收获甜蜜的果实呢？或者这甜美在于祢听见我们的希望中？对于祷告正是这样，因为祷告本身就有着一种靠近祢的渴望。
+那么从生命的苦涩中怎么能以呻吟、哭泣、叹息和哀怨收获甜蜜的果实呢？或者这甜美在于祢听见我们的希望中？对于祷告正是这样，因为祷告本身就有着一种靠近祢的渴望。
 
 > num in dolore amissae rei et luctu, quo tunc operiebar? neque enim sperabam revivescere illum aut hoc petebam lacrimis, sed tantum dolebam et flebam. 
 
