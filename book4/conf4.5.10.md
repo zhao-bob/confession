@@ -19,5 +19,6 @@
 
 > num in dolore amissae rei et luctu, quo tunc operiebar? neque enim sperabam revivescere illum aut hoc petebam lacrimis, sed tantum dolebam et flebam. 
 
+但对已失去的东西的悲伤和哀痛无疑并非这样，尽管那时我被它们淹没。因为我并不希望他死而复生，或以眼泪为此请愿，而只是如此悲伤并哭泣。
 
 > miser enim eram et amiseram gaudium meum. an et fletus res amara est et, prae fastidio rerum quibus prius fruebamur et tunc ab eis abhorremus, delectat?
