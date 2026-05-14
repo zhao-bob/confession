@@ -22,3 +22,5 @@
 但对已失去的东西的悲伤和哀痛无疑并非这样，尽管那时我被它们淹没。因为我并不希望他死而复生，或以眼泪为此请愿，而只是如此悲伤并哭泣。
 
 > miser enim eram et amiseram gaudium meum. an et fletus res amara est et, prae fastidio rerum quibus prius fruebamur et tunc ab eis abhorremus, delectat?
+
+而我如此可怜并失去了我的喜乐。或者哭泣确实是辛酸的事情，可对于我们先前享受可后来厌恶的事情，我们厌弃它们，它就会使我们快乐？
