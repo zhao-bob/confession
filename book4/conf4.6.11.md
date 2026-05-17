@@ -11,7 +11,7 @@
 
 > sic ego eram illo tempore et flebam amarissime et requiescebam in amaritudine. ita miser eram et habebam cariorem illo amico meo vitam ipsam miseram. 
 
-而我在那时就是这样：我极度痛苦地哭泣却安息在这苦楚中。因此可怜的是我，而我更珍惜自身不幸的生命胜过我那位朋友。
+而我在那时就是这样：我极度痛苦地哭泣却安息在这苦楚中。因此可怜的是我，我更珍惜自身不幸的生命胜过我那位朋友。
 
 > nam quamvis eam mutare vellem, nollem tamen amittere magis quam illum, et nescio an vellem vel pro illo, sicut de Oreste et Pylade traditur, si non fingitur, qui vellent pro invicem vel simul mori, qua morte peius eis erat non simul vivere. 
 
