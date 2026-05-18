@@ -15,6 +15,8 @@
 
 > nam quamvis eam mutare vellem, nollem tamen amittere magis quam illum, et nescio an vellem vel pro illo, sicut de Oreste et Pylade traditur, si non fingitur, qui vellent pro invicem vel simul mori, qua morte peius eis erat non simul vivere. 
 
+因为尽管我情愿使这反过来，但比起他，我却更不愿失去的是我的痛苦，而且我不知道我是否甚至愿意为他，像俄瑞斯忒斯和皮拉德斯的传说那样：如果不是虚构的话，他们愿意为彼此甚至一起去死，因为对他们而言，不能同活比死亡更糟糕。
+
 > sed in me nescio quis affectus nimis huic contrarius ortus erat, et taedium vivendi erat in me gravissimum et moriendi metus. 
 
 
