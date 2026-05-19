@@ -19,6 +19,8 @@
 
 > sed in me nescio quis affectus nimis huic contrarius ortus erat, et taedium vivendi erat in me gravissimum et moriendi metus. 
 
+但在我里面却涌现出一种不可名状的与他们完全相反的感觉，而它在我里面使我极度厌倦生活却惧怕死亡。
+
 
 > credo, quo magis illum amabam, hoc magis mortem, quae mihi eum abstulerat, tamquam atrocissimam inimicam oderam et timebam, et eam repente consumpturam omnes homines putabam, quia illum potuit. sic eram omnino, memini. 
 
