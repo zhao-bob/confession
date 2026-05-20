@@ -3,7 +3,7 @@
 
 > sed inter flagitia et facinora et tam multas iniquitates sunt peccata proficientium, quae a bene iudicantibus et vituperantur ex regula perfectionis et laudantur spe frugis sicut herba segetis.
 
-但在耻行和罪行以及如此众多的罪邪之间，还有由追求进步的人所犯的罪恶。出于完美的准则，他们本该被公正的审判者定罪，可他们却受赞扬以希望他们结出果实，就像希望从嫩芽获得丰收一样。
+但在耻行和罪行以及如此众多的罪邪之间，还有由正在精进的人所犯的罪恶。出于完美的准则，他们本该被公正的审判者定罪，可他们因存着结出果实的希望而受赞扬，就像麦地的嫩芽一样。
 
 > et sunt quaedam similia vel flagitio vel facinori et non sunt peccata, quia nec te offendunt, dominum deum nostrum, nec sociale consortium, cum conciliantur aliqua in usum vitae, congrua et tempori, et incertum est an libidine habendi, aut puniuntur corrigendi studio potestate ordinata, et incertum est an libidine nocendi.
 
