@@ -23,7 +23,7 @@
 
 > credo, quo magis illum amabam, hoc magis mortem, quae mihi eum abstulerat, tamquam atrocissimam inimicam oderam et timebam, et eam repente consumpturam omnes homines putabam, quia illum potuit. sic eram omnino, memini. 
 
-我相信，我越是爱他，我对从我这里夺去他的死亡越是憎恨和畏惧，就像对那最残酷的敌人一样。而我甚至以为死亡会突然吞灭所有人类，因为它能这样夺去他。而我记得我当时完全就是如此。
+我相信，我越是爱他，我对从我这里夺去他的死亡越是憎恨和畏惧，就像对那最残酷的敌人一样。而我甚至以为死亡会突然吞灭所有人类，因为它能这样夺去他。而我记得我当时对死亡的感受完全就是如此。
 
 > ecce cor meum, deus meus, ecce intus. vide, quia memini, spes mea, qui me mundas a talium affectionum immunditia, dirigens oculos meos ad te et evellens de laqueo pedes meos. 
 
