@@ -27,6 +27,10 @@
 
 > ecce cor meum, deus meus, ecce intus. vide, quia memini, spes mea, qui me mundas a talium affectionum immunditia, dirigens oculos meos ad te et evellens de laqueo pedes meos. 
 
+我的上帝啊，看看我的内心，看看它的内在。我的希望，看啊，因为我记得祢将我从这些不洁的情感中净化，将我的眼睛引导向你，并从罗网中拔出我的脚[^1]。
+
+[^1]: [诗25:15](https://biblehub.com/psalms/25-15.htm) 我的眼睛始终在耶和华上，因为祂会从从罗网中释放我的脚。
+
 > mirabar enim ceteros mortales vivere, quia ille, quem quasi non moriturum dilexeram, mortuus erat, et me magis, quia ille alter eram, vivere illo mortuo mirabar. 
 
 > bene quidam dixit de amico suo: 'dimidium animae' suae. nam ego sensi animam meam et animam illius unam fuisse animam in duobus corporibus, et ideo mihi horrori erat vita, quia nolebam dimidius vivere, et ideo forte mori metuebam, ne totus ille moreretur quem multum amaveram.
