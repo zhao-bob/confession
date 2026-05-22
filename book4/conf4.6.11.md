@@ -31,6 +31,8 @@
 
 [^1]: [诗25:15](https://biblehub.com/psalms/25-15.htm) 我的眼睛始终在耶和华上，因为祂会从从罗网中释放我的脚。
 
-> mirabar enim ceteros mortales vivere, quia ille, quem quasi non moriturum dilexeram, mortuus erat, et me magis, quia ille alter eram, vivere illo mortuo mirabar. 
+> mirabar enim ceteros mortales vivere, quia ille, quem quasi non moriturum dilexeram, mortuus erat, et me magis, quia ille alter eram, vivere illo mortuo mirabar.
+
+我惊讶于其余的凡人都活着，可我所爱的人，似乎绝不会死去，却死了。而更让我诧异的是，我自己就是另一个他，而我还活着，可他却死了。
 
 > bene quidam dixit de amico suo: 'dimidium animae' suae. nam ego sensi animam meam et animam illius unam fuisse animam in duobus corporibus, et ideo mihi horrori erat vita, quia nolebam dimidius vivere, et ideo forte mori metuebam, ne totus ille moreretur quem multum amaveram.
