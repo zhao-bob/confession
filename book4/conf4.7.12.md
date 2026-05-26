@@ -7,6 +7,8 @@
 
 > itaque aestuabam, suspirabam, flebam, turbabar, nec requies erat nec consilium. portabam enim concisam et cruentam animam meam impatientem portari a me, et ubi eam ponerem non inveniebam. 
 
+于是，我苦闷，叹息，哭泣，心神不宁，既得不到安息也没有主意。我背负着我那破碎而血流不止的灵魂，它毫不耐烦地被我背负，我也找不到去何处安放它。
+
 > non in amoenis nemoribus, non in ludis atque cantibus, nec in suave olentibus locis, nec in conviviis apparatis, neque in voluptate cubilis et lecti, non denique in libris atque carminibus adquiescebat. 
 
 > horrebant omnia et ipsa lux, et quidquid non erat quod ille erat improbum et odiosum erat praeter gemitum et lacrimas: nam in eis solis aliquantula requies. 
