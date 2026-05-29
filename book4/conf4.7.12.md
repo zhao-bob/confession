@@ -9,9 +9,13 @@
 
 于是，我苦闷，叹息，哭泣，心神不宁，既得不到安息也没有主意。我背负着我那破碎而血流不止的灵魂，它毫不耐烦地被我背负，我也找不到去何处安放它。
 
-> non in amoenis nemoribus, non in ludis atque cantibus, nec in suave olentibus locis, nec in conviviis apparatis, neque in voluptate cubilis et lecti, non denique in libris atque carminibus adquiescebat. 
+> non in amoenis nemoribus, non in ludis atque cantibus, nec in suave olentibus locis, nec in conviviis apparatis, neque in voluptate cubilis et lecti, non denique in libris atque carminibus adquiescebat.
+
+不在宜人的林间，不在游戏和歌曲中，既不在沁香之地，也不在奢华的盛宴中，也不在床榻的愉悦中，而最后在书籍和诗歌中它也找不到安息。
 
 > horrebant omnia et ipsa lux, et quidquid non erat quod ille erat improbum et odiosum erat praeter gemitum et lacrimas: nam in eis solis aliquantula requies. 
+
+万物都令我惊惧，甚至连那真光本身也是，而无论什么只要不是他都是邪恶而恶心的，只有呻吟和泪水例外：因为惟有在它们里面才有些许的平息。
 
 > ubi autem inde auferebatur anima mea, onerabat me grandi sarcina miseriae. ad te, domine, levanda erat et curanda, sciebam, sed nec volebam nec valebam, eo magis quia non mihi eras aliquid solidum et firmum, cum de te cogitabam. 
 
