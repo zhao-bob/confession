@@ -17,7 +17,9 @@
 
 万物都令我惊惧，甚至连那真光本身也是，而无论什么只要不是他都是邪恶而恶心的，只有呻吟和泪水例外：因为惟有在它们里面才有些许的平息。
 
-> ubi autem inde auferebatur anima mea, onerabat me grandi sarcina miseriae. ad te, domine, levanda erat et curanda, sciebam, sed nec volebam nec valebam, eo magis quia non mihi eras aliquid solidum et firmum, cum de te cogitabam. 
+> ubi autem inde auferebatur anima mea, onerabat me grandi sarcina miseriae. ad te, domine, levanda erat et curanda, sciebam, sed nec volebam nec valebam, eo magis quia non mihi eras aliquid solidum et firmum, cum de te cogitabam.
+
+然而，一旦我的灵魂从其中抽离，痛苦的重负就沉重地压在我的身上。
 
 > non enim tu eras, sed vanum phantasma et error meus erat deus meus. si conabar eam ibi ponere ut requiesceret, per inane labebatur et iterum ruebat super me, et ego mihi remanseram infelix locus, ubi nec esse possem nec inde recedere. 
 
