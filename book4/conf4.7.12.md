@@ -19,8 +19,12 @@
 
 > ubi autem inde auferebatur anima mea, onerabat me grandi sarcina miseriae. ad te, domine, levanda erat et curanda, sciebam, sed nec volebam nec valebam, eo magis quia non mihi eras aliquid solidum et firmum, cum de te cogitabam.
 
-然而，一旦我的灵魂从其中抽离，痛苦的重负就沉重地压在我的身上。
+然而，一旦我的灵魂从其中抽离，痛苦的重负就沉重地压在我的身上。主啊，我本应向祢举起我的灵魂[^1]，而被祢治愈。这我知道，但我对此既不愿也无能，因为当我想到祢时，祢在我心中并非比任何东西更加坚固而牢靠。
+
+[^1]: [诗25:1](https://biblehub.com/psalms/25-1.htm) 大卫的诗。耶和华啊，我向祢举起我的灵魂；
 
 > non enim tu eras, sed vanum phantasma et error meus erat deus meus. si conabar eam ibi ponere ut requiesceret, per inane labebatur et iterum ruebat super me, et ego mihi remanseram infelix locus, ubi nec esse possem nec inde recedere. 
+
+而那并非是祢，而是空虚的幻象。我的谬误才是我的上帝。
 
 > quo enim cor meum fugeret a corde meo? quo a me ipso fugerem? quo non me sequerer? et tamen fugi de patria. minus enim eum quaerebant oculi mei ubi videre non solebant, atque a Thagastensi oppido veni Carthaginem.
