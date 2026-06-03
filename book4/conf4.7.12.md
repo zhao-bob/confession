@@ -29,4 +29,4 @@
 
 > quo enim cor meum fugeret a corde meo? quo a me ipso fugerem? quo non me sequerer? et tamen fugi de patria. minus enim eum quaerebant oculi mei ubi videre non solebant, atque a Thagastensi oppido veni Carthaginem.
 
-因为我的心能从我的内心逃到哪里呢？我能从我自身逃到哪里呢？在哪里我能不跟随自己呢？
+因为我的心能从我的内心逃到哪里呢？我能从我自身逃到哪里呢？在哪里我能不跟随自己呢？而我仍旧逃离了家乡。
