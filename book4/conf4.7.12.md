@@ -28,3 +28,5 @@
 而那并非是祢，而是空虚的幻象。我的谬误才是我的上帝。如果我试图将其放在那里使它安息，它就会藉着虚无滑落，并再次向我扑来，因而我将自己困在自身这个不幸的地方，其中我既不能真正存在，也无法离开。
 
 > quo enim cor meum fugeret a corde meo? quo a me ipso fugerem? quo non me sequerer? et tamen fugi de patria. minus enim eum quaerebant oculi mei ubi videre non solebant, atque a Thagastensi oppido veni Carthaginem.
+
+因为我的心能从我的内心逃到哪里呢？我能从我自身逃到哪里呢？在哪里我能不跟随自己呢？
