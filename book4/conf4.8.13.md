@@ -17,8 +17,10 @@
 
 > maxime quippe me reparabant atque recreabant aliorum amicorum solacia, cum quibus amabam quod pro te amabam, et hoc erat ingens fabula et longum mendacium, cuius adulterina confricatione corrumpebatur mens nostra pruriens in auribus. 
 
-当然，其他朋友的安慰最能使我恢复并复苏。与他们一起，我爱着我所爱的，作为祢的替代，而这是巨大的鬼话与冗长的谎言。在这淫荡的爱抚下，我们有着“发痒耳朵”的心灵被腐坏。
+当然，其他朋友的安慰最能使我恢复并复苏。与他们一起，我爱着我所爱的，作为祢的替代，而这是巨大的神话与冗长的谎言。在这淫荡的爱抚下，我们有着“发痒耳朵”的心灵被腐坏。
 
 > sed illa mihi fabula non moriebatur, si quis amicorum meorum moreretur. 
+
+但就算我的一位朋友去世，这神话对我也不会死去。
 
 > alia erant quae in eis amplius capiebant animum, conloqui et conridere et vicissim benivole obsequi, simul legere libros dulciloquos, simul nugari et simul honestari, dissentire interdum sine odio tamquam ipse homo secum atque ipsa rarissima dissensione condire consensiones plurimas, docere aliquid invicem aut discere ab invicem, desiderare absentes cum molestia, suscipere venientes cum laetitia: his atque huius modi signis a corde amantium et redamantium procedentibus per os, per linguam, per oculos et mille motus gratissimos, quasi fomitibus conflare animos et ex pluribus unum facere.
