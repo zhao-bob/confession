@@ -25,4 +25,4 @@
 
 > alia erant quae in eis amplius capiebant animum, conloqui et conridere et vicissim benivole obsequi, simul legere libros dulciloquos, simul nugari et simul honestari, dissentire interdum sine odio tamquam ipse homo secum atque ipsa rarissima dissensione condire consensiones plurimas, docere aliquid invicem aut discere ab invicem, desiderare absentes cum molestia, suscipere venientes cum laetitia: his atque huius modi signis a corde amantium et redamantium procedentibus per os, per linguam, per oculos et mille motus gratissimos, quasi fomitibus conflare animos et ex pluribus unum facere.
 
-在这其中，还有其他占据我的灵魂更多的东西：我们一起交谈、一起欢笑、相互友善地服务，一同读喜爱的书籍，一同打闹也一同严肃；偶尔各持己见而不带仇恨，就像一个人对他自己一样，而这些稀少的不和也会调和出非常多的共识；相互教导或彼此间学习一些东西；带着烦恼思念缺席的人，而带着喜悦迎接到来的人：
+在这其中，还有其他占据我的灵魂更多的东西：我们一起交谈、一起欢笑、相互友善地服务，一同读喜爱的书籍，一同打闹也一同严肃；偶尔各持己见而不带仇恨，就像一个人对他自己一样，而这些稀少的不和也会调和出非常多的共识；相互教导或彼此间学习一些东西；带着烦恼思念缺席的人，而带着喜悦迎接到来的人：这些以及与之类似的迹象藉着面容、藉着舌头，藉着眼睛以及万千感激的动作，从那些爱和被爱的人心中发出，就像火种点燃灵魂而将众多合而为一一样。
