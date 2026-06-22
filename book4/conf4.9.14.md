@@ -16,3 +16,7 @@
 [^1]: [太5:43](https://biblehub.com/matthew/5-43.htm) 你们听过经上说，‘爱你的邻居’和‘恨你的敌人。’ [44](https://biblehub.com/matthew/5-44.htm)  但我告诉你们，要爱你们的敌人并为那些迫害你们的人祷告，
 
 > et quis est iste nisi deus noster, deus, qui fecit caelum et terram et implet ea, quia implendo ea fecit ea? te nemo amittit nisi qui dimittit, et quia dimittit, quo it aut quo fugit nisi a te placido ad te iratum? nam ubi non invenit legem tuam in poena sua? et lex tua veritas et veritas tu.
+
+而这除了我们的上帝还会是谁呢？---就是那位上帝：祂造了天与地，且充满它们[^2]；因为祂正是“以充满”创造了它们。
+
+[^2]: [诗146:5](https://biblehub.com/psalms/146-5.htm) 以雅各的上帝为其帮助，其盼望在耶和华他的上帝之上的人---这人有福了。 [6](https://biblehub.com/psalms/146-6.htm) 祂造天与地、海洋与其中万物。祂持守信实，直到永远。
