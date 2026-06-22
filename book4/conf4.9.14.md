@@ -17,6 +17,10 @@
 
 > et quis est iste nisi deus noster, deus, qui fecit caelum et terram et implet ea, quia implendo ea fecit ea? te nemo amittit nisi qui dimittit, et quia dimittit, quo it aut quo fugit nisi a te placido ad te iratum? nam ubi non invenit legem tuam in poena sua? et lex tua veritas et veritas tu.
 
-而这除了我们的上帝还会是谁呢？---就是那位上帝：祂造了天与地，且充满它们[^2]；因为祂正是“以充满”创造了它们。
+而这除了我们的上帝还会是谁呢？---就是那位上帝：祂造了天与地，且充满它们[^2]；因为祂正是“以充满”创造了它们。无人失去祢，除非他离弃祢，而既然他离弃祢，他走或逃向哪呢[^3]？无非是离开祢的恩容，而朝向祢的忿怒。因为在他自己的惩罚中，他何处不遇见祢的律法呢？而祢的律法是真理[^4]，祢即真理。
 
 [^2]: [诗146:5](https://biblehub.com/psalms/146-5.htm) 以雅各的上帝为其帮助，其盼望在耶和华他的上帝之上的人---这人有福了。 [6](https://biblehub.com/psalms/146-6.htm) 祂造天与地、海洋与其中万物。祂持守信实，直到永远。
+
+[^3]: [诗139:7](https://biblehub.com/psalms/139-7.htm) 我往哪里去能逃脱祢的灵？我往哪里能从祢面前逃离？
+
+[^4]: [诗119:142](https://biblehub.com/psalms/119-142.htm) 祢的正义存到永远；祢的律法是真理。
