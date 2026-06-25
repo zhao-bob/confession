@@ -15,7 +15,9 @@
 
 它们升起又落下，而在升起中，它们仿佛开始存在；继而成长，为要被臻备；达臻至便衰败、消亡：并非万物皆衰老，而万物皆消亡。
 
-> ergo cum oriuntur et tendunt esse, quo magis celeriter crescunt ut sint, eo magis festinant ut non sint: sic est modus eorum. 
+> ergo cum oriuntur et tendunt esse, quo magis celeriter crescunt ut sint, eo magis festinant ut non sint: sic est modus eorum.
+
+因而，当它们升起并趋于存在时，它们越疾速成长以“存在”，它们就越奔向“不存在”：这就是它们的限度。
 
 > tantum dedisti eis, quia partes sunt rerum, quae non sunt omnes simul, sed decedendo ac succedendo agunt omnes universum, cuius partes sunt. (ecce sic peragitur et sermo noster per signa sonantia. non enim erit totus sermo, si unum verbum non decedat, cum sonuerit partes suas, ut succedat aliud.) 
 
