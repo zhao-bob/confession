@@ -21,6 +21,8 @@
 
 > tantum dedisti eis, quia partes sunt rerum, quae non sunt omnes simul, sed decedendo ac succedendo agunt omnes universum, cuius partes sunt. (ecce sic peragitur et sermo noster per signa sonantia. non enim erit totus sermo, si unum verbum non decedat, cum sonuerit partes suas, ut succedat aliud.) 
 
+祢已赐给它们的就是这么多，因为它们是事物的部分，而这些部分并非都同时存在，但由衰退和继起，它们所有促成那整体，它们正是整体的部分。看哪，连我们的讲话也是如此藉着有声信号被完成的。
+
 > laudet te ex illis anima mea, deus, creator omnium, sed non in eis figatur glutine amore per sensus corporis. eunt enim quo ibant, ut non sint, et conscindunt eam desideriis pestilentiosis, quoniam ipsa esse vult et requiescere amat in eis quae amat. 
 
 > in illis autem non est ubi, quia non stant: fugiunt, et quis ea sequitur sensu carnis? aut quis ea comprehendit, vel cum praesto sunt? tardus est enim sensus carnis, quoniam sensus carnis est: ipse est modus eius. 
