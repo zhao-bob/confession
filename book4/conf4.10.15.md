@@ -25,6 +25,10 @@
 
 > laudet te ex illis anima mea, deus, creator omnium, sed non in eis figatur glutine amore per sensus corporis. eunt enim quo ibant, ut non sint, et conscindunt eam desideriis pestilentiosis, quoniam ipsa esse vult et requiescere amat in eis quae amat.
 
+上帝啊，万物的造物主，愿我的灵魂出于这些而赞美祢[^2]，但不要使它藉着身体感官，以那如胶般的爱被铆于其上。要知道​，它们正往它们曾在去的方向去，以致不复存在，而它们用瘟疫般的欲望将它撕碎，因为它想要自己存在，并爱安息在它所爱之物中。
+
+[^2] [诗146-2](https://biblehub.com/psalms/146-2.htm) 我要赞美耶和华，在我一生之中；我要歌颂我的上帝，只要我还存活。 
+
 > in illis autem non est ubi, quia non stant: fugiunt, et quis ea sequitur sensu carnis? aut quis ea comprehendit, vel cum praesto sunt? tardus est enim sensus carnis, quoniam sensus carnis est: ipse est modus eius. 
 
 > sufficit ad aliud, ad quod factus est, ad illud autem non sufficit, ut teneat transcurrentia ab initio debito usque ad finem debitum. in verbo enim tuo, per quod creantur, ibi audiunt, 'hinc' et 'huc usque.'
