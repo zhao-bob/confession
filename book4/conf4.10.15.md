@@ -17,7 +17,7 @@
 
 > ergo cum oriuntur et tendunt esse, quo magis celeriter crescunt ut sint, eo magis festinant ut non sint: sic est modus eorum.
 
-因而，当它们升起并趋于存在时，它们越疾速成长以“存在”，它们就越奔向“不存在”：这就是它们的限度。
+因而，当它们升起并趋于存在时，它们越疾速成长以“存在”，它们就越奔向“不存在”：这就是它们的尺度。
 
 > tantum dedisti eis, quia partes sunt rerum, quae non sunt omnes simul, sed decedendo ac succedendo agunt omnes universum, cuius partes sunt. (ecce sic peragitur et sermo noster per signa sonantia. non enim erit totus sermo, si unum verbum non decedat, cum sonuerit partes suas, ut succedat aliud.) 
 
@@ -30,5 +30,7 @@
 [^2] [诗146-2](https://biblehub.com/psalms/146-2.htm) 我要赞美耶和华，在我一生之中；我要歌颂我的上帝，只要我还存活。 
 
 > in illis autem non est ubi, quia non stant: fugiunt, et quis ea sequitur sensu carnis? aut quis ea comprehendit, vel cum praesto sunt? tardus est enim sensus carnis, quoniam sensus carnis est: ipse est modus eius. 
+
+然而，它在其中没有所在，因为它们不驻留：它们逃逸，而谁能凭肉体感官追上它们呢？谁又能抓住它们，就算它们立在面前？要知道，肉体感官是迟钝的，因为它是肉体感官，而这即是它的尺度。
 
 > sufficit ad aliud, ad quod factus est, ad illud autem non sufficit, ut teneat transcurrentia ab initio debito usque ad finem debitum. in verbo enim tuo, per quod creantur, ibi audiunt, 'hinc' et 'huc usque.'
