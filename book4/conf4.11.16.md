@@ -5,7 +5,9 @@
 
 我的灵魂啊，不要存于虚空，也不要在你虚空的骚动中，让自己的心耳变聋。
 
-> audi et tu: verbum ipsum clamat ut redeas, et ibi est locus quietis imperturbabilis, ubi non deseritur amor si ipse non deserat. 
+> audi et tu: verbum ipsum clamat ut redeas, et ibi est locus quietis imperturbabilis, ubi non deseritur amor si ipse non deserat.
+
+你也听吧：那言亲自呼喊要你回归，而那里是不受搅扰的安息之所：在那里爱不会被离弃，只要自己不离弃。
 
 > ecce illa discedunt ut alia succedant, et omnibus suis partibus constet infima universitas. `numquid ego aliquo discedo?' ait verbum dei. 
 
