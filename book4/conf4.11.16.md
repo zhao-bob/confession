@@ -14,3 +14,5 @@
 看那，那些退去以使另一些得以继起，而最底层的整体由它所有部分得以立为一体。“我岂退往某处？”上帝的言说。
 
 > ibi fige mansionem tuam, ibi commenda quidquid inde habes, anima mea; saltem fatigata fallaciis, veritati commenda quidquid tibi est a veritate, et non perdes aliquid, et reflorescent putria tua, et sanabuntur omnes languores tui, et fluxa tua reformabuntur et renovabuntur et constringentur ad te, et non te deponent quo descendunt, sed stabunt tecum et permanebunt ad semper stantem ac permanentem deum.
+
+我的灵魂啊，在那里铆钉你的住所，在那里将你从那所拥有的一切交托；至少，既受诡诈所累，就将从真理而来属于你的一切交托给真理，你就不会失丧任何，你的腐朽就会重新绽放，而你所有的病弱都会被治愈。
