@@ -11,7 +11,7 @@
 
 > nam et quod loquimur per eundem sensum carnis audis, et non vis utique stare syllabas sed transvolare, ut aliae veniant et totum audias.
 
-因为，就连我们所讲的，你也藉着同一肉体感官在听，而你确实不愿音节停住，却愿它们飞过，以使别的来到，你就听到整体。
+因为，就连我们所讲的，你也藉着同一肉体感官在听，而你确实不愿音节停住，却愿它们飞过，好让别的来到，你就听到整体。
 
 > ita semper omnia, quibus unum aliquid constat (et non sunt omnia simul ea quibus constat): plus delectant omnia quam singula, si possint sentiri omnia. 
 
