@@ -18,3 +18,5 @@
 而总是如此，所有部分---由它们构成某个一体（而那些构成一体的所有部分不是同时俱在）：假使所有的都能够被感知，那么所有的比单个更使你快乐。
 
 > sed longe his melior qui fecit omnia, et ipse est deus noster, et non discedit, quia nec succeditur ei.
+
+但造了万物的那一位要远比这些更善，而祂本身就是我们的上帝，祂不消逝，因为没有什么能接替祂。
