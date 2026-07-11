@@ -7,7 +7,7 @@
 
 > sed si ad totum comprehendendum esset idoneus sensus carnis tuae, ac non et ipse in parte universi accepisset pro tua poena iustum modum, velles ut transiret quidquid existit in praesentia, ut magis tibi omnia placerent. 
 
-但倘若你肉体的感官胜任把握那整体---而它自身也不配，只在宇宙的一部分中，为你的刑罚领受公义的尺度，你就会愿意让任何现存的都逝去，好叫所有部分都使你更加满意。
+但倘若你肉体的感官胜任把握那整体---而它自身也不配，只在宇宙的一部分中，为你的刑罚领受公义的尺度，你就会愿意让任何现存的都逝去，好叫所有部分都使你更加愉悦。
 
 > nam et quod loquimur per eundem sensum carnis audis, et non vis utique stare syllabas sed transvolare, ut aliae veniant et totum audias.
 
