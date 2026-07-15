@@ -21,4 +21,6 @@
 
 > state cum eo et stabitis, requiescite in eo et quieti eritis. quo itis in aspera? quo itis? bonum quod amatis ab illo est: sed quantum est ad illum, bonum est et suave; sed amarum erit iuste, quia iniuste amatur deserto illo quidquid ab illo est. 
 
+与祂一同站立，你们就必坚立；在祂里面安息，你们就必得安宁。你们在崎岖之地往何处去？你们在去哪里？你们所爱的善，是从祂来的：而论及祂，却是善而甘美的；但离弃祂，就公正地成为苦涩，因为凡从祂而来的，都被不正当地爱着。
+
 > quo vobis adhuc et adhuc ambulare vias difficiles et laboriosas? non est requies ubi quaeratis eam. quaerite quod quaeritis, sed ibi non est ubi quaeritis. beatam vitam quaeritis in regione mortis: non est illic. quomodo enim beata vita, ubi nec vita?
