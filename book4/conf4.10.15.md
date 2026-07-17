@@ -5,7 +5,7 @@
 
 “万军之上帝啊，求祢使我们转回，愿祢的面光照我们，我们就必被拯救。[^1]”
 
-[^1] [诗80:7](https://biblehub.com/psalms/80-7.htm) 万军之上帝啊，求祢使我们转回，愿祢的面光照我们，我们就必被拯救。
+[^1]: [诗80:7](https://biblehub.com/psalms/80-7.htm) 万军之上帝啊，求祢使我们转回，愿祢的面光照我们，我们就必被拯救。
 
 > nam quoquoversum se verterit anima hominis, ad dolores figitur alibi praeterquam in te, tametsi figitur in pulchris extra te et extra se. quae tamen nulla essent, nisi essent abs te. 
 
@@ -27,7 +27,7 @@
 
 上帝啊，万物的造物主，愿我的灵魂出于这些而赞美祢[^2]，但不要使它藉着身体感官，以那如胶般的爱被铆于其上。要知道​，它们正往它们曾在去的方向去，以致不复存在，而它们用瘟疫般的欲望将它撕碎，因为它想要自己存在，并爱安息在它所爱之物中。
 
-[^2] [诗146:2](https://biblehub.com/psalms/146-2.htm) 我要赞美耶和华，在我一生之中；我要歌颂我的上帝，只要我还存活。 
+[^2]: [诗146:2](https://biblehub.com/psalms/146-2.htm) 我要赞美耶和华，在我一生之中；我要歌颂我的上帝，只要我还存活。 
 
 > in illis autem non est ubi, quia non stant: fugiunt, et quis ea sequitur sensu carnis? aut quis ea comprehendit, vel cum praesto sunt? tardus est enim sensus carnis, quoniam sensus carnis est: ipse est modus eius. 
 
@@ -37,4 +37,4 @@
 
 对它被造的目的而言，它是足够的，却不足以握住那从当在的起点向当往的终点不断滑过之物。要知道，在祢的圣言---它们藉着它被创造---中，它们在那里听见：“从此”而“至此”[^3]。
 
-[^3] [伯38:11](https://biblehub.com/job/38-11.htm) 而我宣告，‘你只能至此，不可越过；你的狂浪必须在此停止。’？
+[^3]: [伯38:11](https://biblehub.com/job/38-11.htm) 而我宣告，‘你只能至此，不可越过；你的狂浪必须在此停止。’？

@@ -17,7 +17,7 @@
 
 看哪，祂在哪里，真理就在哪里得尝：祂最内于心，可心却已游离祂。悖逆者们，回归吧，向着心[^1]并紧贴造了你们的祂吧！
 
-[^1] [赛46:8](https://biblehub.com/isaiah/46-8.htm) 记念这事并坚定；你们这些悖逆者，归回心上！
+[^1]: [赛46:8](https://biblehub.com/isaiah/46-8.htm) 记念这事并坚定；你们这些悖逆者，归回心上！
 
 > state cum eo et stabitis, requiescite in eo et quieti eritis. quo itis in aspera? quo itis? bonum quod amatis ab illo est: sed quantum est ad illum, bonum est et suave; sed amarum erit iuste, quia iniuste amatur deserto illo quidquid ab illo est. 
 
