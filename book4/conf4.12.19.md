@@ -17,6 +17,8 @@
 
 > et discessit ab oculis, ut redeamus ad cor et inveniamus eum. abscessit enim et ecce hic est. noluit nobiscum diu esse et non reliquit nos. illuc enim abscessit unde numquam recessit, quia mundus per eum factus est, et in hoc mundo erat et venit in hunc mundum peccatores salvos facere. 
 
+祂已从眼前离去，以使我们向着心回归并寻见祂。要知道，祂虽已撤离，但看哪，祂仍在这里。祂不肯长久与我们同在，却从未离弃我们。
+
 > cui confitetur anima mea et sanat eam, quoniam peccavit illi. filii hominum, quo usque graves corde? numquid et post descensum vitae non vultis ascendere et vivere? sed quo ascenditis, quando in alto estis et posuistis in caelo os vestrum? 
 
 > descendite, ut ascendatis, et ascendatis ad deum. cecidistis enim ascendendo contra deum.' dic eis ista, ut plorent in convalle plorationis, et sic eos rape tecum ad deum, quia de spiritu eius haec dicis eis, si dicis ardens igne caritatis.
