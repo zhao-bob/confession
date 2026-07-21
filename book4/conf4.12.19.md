@@ -17,7 +17,11 @@
 
 > et discessit ab oculis, ut redeamus ad cor et inveniamus eum. abscessit enim et ecce hic est. noluit nobiscum diu esse et non reliquit nos. illuc enim abscessit unde numquam recessit, quia mundus per eum factus est, et in hoc mundo erat et venit in hunc mundum peccatores salvos facere. 
 
-祂已从眼前离去，以使我们向着心回归并寻见祂。要知道，祂虽已撤离，但看哪，祂仍在这里。祂不肯长久与我们同在，却从未离弃我们。
+祂已从眼前离去，以使我们向着心回归并寻见祂。要知道，祂虽已撤离，但看哪，祂仍在这里。祂不肯长久与我们同在，却从未离弃我们。要知道，祂撤到了那里，而祂在那里永不退离，因为世界是藉着祂受造的，而祂本在这世界里[^4]，又进入了这世界，以使罪人得救[^5]。
+
+[^4]: [约1:10](https://biblehub.com/john/1-10.htm) 祂本在这世界里，这世界也是藉着祂受造的，这世界却不认识祂。
+
+[^5]: [提前1:15](https://biblehub.com/1_timothy/1-15.htm) 这话是可信的，配受全然接纳：基督耶稣进入了这世界，以拯救罪人---其中我是罪魁。
 
 > cui confitetur anima mea et sanat eam, quoniam peccavit illi. filii hominum, quo usque graves corde? numquid et post descensum vitae non vultis ascendere et vivere? sed quo ascenditis, quando in alto estis et posuistis in caelo os vestrum? 
 
