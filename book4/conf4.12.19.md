@@ -25,4 +25,6 @@
 
 > cui confitetur anima mea et sanat eam, quoniam peccavit illi. filii hominum, quo usque graves corde? numquid et post descensum vitae non vultis ascendere et vivere? sed quo ascenditis, quando in alto estis et posuistis in caelo os vestrum? 
 
+我的灵魂向祂忏悔，祂就医治它，因为它已对祂犯了罪。人类的子孙啊，你们的心发沉到几时？难道在那生命降下之后，你们还不愿升上去而活吗？而既然你们高高在上并已把你们的嘴放在天上，你们还升往哪里呢？
+
 > descendite, ut ascendatis, et ascendatis ad deum. cecidistis enim ascendendo contra deum.' dic eis ista, ut plorent in convalle plorationis, et sic eos rape tecum ad deum, quia de spiritu eius haec dicis eis, si dicis ardens igne caritatis.
