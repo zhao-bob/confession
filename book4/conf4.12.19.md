@@ -25,6 +25,16 @@
 
 > cui confitetur anima mea et sanat eam, quoniam peccavit illi. filii hominum, quo usque graves corde? numquid et post descensum vitae non vultis ascendere et vivere? sed quo ascenditis, quando in alto estis et posuistis in caelo os vestrum? 
 
-我的灵魂向祂忏悔，祂就医治它，因为它已对祂犯了罪。人类的子孙啊，你们的心发沉到几时？难道在那生命降下之后，你们还不愿升上去而活吗？而既然你们高高在上并已把你们的嘴放在天上，你们还升往哪里呢？
+我的灵魂向祂忏悔，祂就医治它，因为它已对祂犯了罪[^6]。人类的子孙啊，你们的心发沉到几时？[^7]难道在那生命降下之后，你们还不愿升上去而活吗？而既然你们高高在上并已把你们的嘴安在天上[^8]，你们还升往哪里呢？
+
+[^6]: [诗41:4](https://biblehub.com/psalms/41-4.htm) 我说，“耶和华啊，请对我仁慈；医治我，因为我已对祢犯了罪。”
+
+[^7]: [诗4:2](https://biblehub.com/psalms/4-2.htm) 人类的子孙啊，我的尊荣被羞辱要到几时？你们爱慕虚荣、追逐谎言要到几时？
+
+[^8]: [诗73:9](https://biblehub.com/psalms/73-9.htm) 他们将他们的嘴安在天上，而他们的舌在地上横行。
 
 > descendite, ut ascendatis, et ascendatis ad deum. cecidistis enim ascendendo contra deum.' dic eis ista, ut plorent in convalle plorationis, et sic eos rape tecum ad deum, quia de spiritu eius haec dicis eis, si dicis ardens igne caritatis.
+
+降下吧，以使你们升上去，并升到上帝那里。要知道，你们在违抗神的上升中已堕落。”将这话对它们说吧，以使它们在哭谷中哭泣[^9]，就这样把它们与你一同拽到上帝那里吧！因为只要你燃烧着圣爱的火焰来说，你对它们说这话就出自祂的灵。
+
+[^9]: [诗84:6](https://biblehub.com/psalms/84-6.htm) 他们经过泪谷，就使它成为泉源之地；甚至秋雨都以祝福覆盖它。
