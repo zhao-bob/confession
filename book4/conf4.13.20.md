@@ -11,4 +11,6 @@
 
 > et animadvertebam et videbam in ipsis corporibus aliud esse quasi totum et ideo pulchrum, aliud autem quod ideo deceret, quoniam apte adcommodaretur alicui, sicut pars corporis ad universum suum aut calciamentum ad pedem et similia. 
 
+我留意并看到在身体本身中，存在一种美，仿佛整体一样，因而是美的，而另一种美则在于它适宜，因为它恰当地适配于某物，正如身体部分对自身的全体，或是鞋对脚，以及类似的一样。
+
 > et ista consideratio scaturrivit in animo meo ex intimo corde meo, et scripsi libros `de pulchro et apto' -- puto duos aut tres: tu scis, deus, nam excidit mihi. non enim habemus eos, sed aberraverunt a nobis nescio quo modo.
