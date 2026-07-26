@@ -14,3 +14,5 @@
 我留意并看到在身体本身中，存在一种美，仿佛整体一样，因而是美的，而另一种美则在于它适宜，因为它恰当地适配于某物，正如身体部分对自身的全体，或是鞋对脚，以及类似的一样。
 
 > et ista consideratio scaturrivit in animo meo ex intimo corde meo, et scripsi libros `de pulchro et apto' -- puto duos aut tres: tu scis, deus, nam excidit mihi. non enim habemus eos, sed aberraverunt a nobis nescio quo modo.
+
+而这番思索从我最内在的心涌入我的灵魂，我就写了“论美与适宜”的书卷---我想是两卷或三卷：上帝啊，祢知道，因为它已从我这里失落。因为我们不再拥有它们，但它们从我们这里走失了，以何种方式，我也不知道。
