@@ -7,6 +7,7 @@
 
 > sed magis quia placebat aliis et eum efferebant laudibus, stupentes quod ex homine Syro, docto prius graecae facundiae, post in latina etiam dictor mirabilis extitisset et esset scientissimus rerum ad studium sapientiae pertinentium, mihi placebat. 
 
+但更因为他合其他人的心意。他们盛赞他，惊叹这位来自叙利亚的人---他先受希腊雄辩教育，后来又在拉丁语上崭露为非凡的演讲者，在智慧相关事情研究上最为博学---这正合我心意。
 
 > laudatur homo et amatur absens. utrumnam ab ore laudantis intrat in cor audientis amor ille? absit! sed ex amante alio accenditur alius. 
 
