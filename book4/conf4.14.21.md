@@ -11,4 +11,8 @@
 
 > laudatur homo et amatur absens. utrumnam ab ore laudantis intrat in cor audientis amor ille? absit! sed ex amante alio accenditur alius. 
 
+这人被赞美，而且虽未谋面，却还被爱。那爱是否从赞美者的口中进入听者的心中？断然不是！而是从一个爱者那里，另一人被点燃。
+
 > hinc enim amatur qui laudatur, dum non fallaci corde laudatoris praedicari creditur, id est cum amans eum laudat.
+
+要知道，由此那被赞美的人被爱，只要相信他在被赞美者无伪的心宣扬，也就是，当爱他的人赞美他时。
