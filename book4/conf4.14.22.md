@@ -9,7 +9,9 @@
 
 而尽管如此，为何人们赞美他，不像赞美闻名的御者，或是被众人追捧而声名远播的猎手那样？而是大不相同而庄严地，恰如我希望自己被赞美的那样。
 
-> non autem vellem ita laudari et amari me ut histriones, quamquam eos et ipse laudarem et amarem, sed eligens latere quam ita notus esse et vel haberi odio quam sic amari. 
+> non autem vellem ita laudari et amari me ut histriones, quamquam eos et ipse laudarem et amarem, sed eligens latere quam ita notus esse et vel haberi odio quam sic amari.
+
+而我绝不愿如演员那样被赞美和被爱，尽管我自己赞美并爱他们，而比起像那样出名，宁可选择隐藏，甚至比起如此被爱，宁可选择被怀恨。
 
 > ubi distribuuntur ista pondera variorum et diversorum amorum in anima una? quid est quod amo in alio? quod rursus nisi odissem, non a me detestarer et repellerem, cum sit uterque nostrum homo? 
 
