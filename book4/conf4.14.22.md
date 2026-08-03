@@ -15,6 +15,8 @@
 
 > ubi distribuuntur ista pondera variorum et diversorum amorum in anima una? quid est quod amo in alio? quod rursus nisi odissem, non a me detestarer et repellerem, cum sit uterque nostrum homo? 
 
+这些各样不同的爱的份量在单个灵魂中被分配在何处？我在他人身上爱的是什么？反过来，既然我们俩都是人，这东西我若不憎恨，我就不会从自己身上诅恨并拒斥？
+
 > non enim sicut equus bonus amatur ab eo qui nollet hoc esse etiamsi posset. hoc et de histrione dicendum est, qui naturae nostrae socius est. 
 
 > ergone amo in homine quod odi esse, cum sim homo? grande profundum est ipse homo, cuius etiam capillos tu, domine, numeratos habes et non minuuntur in te: et tamen capilli eius magis numerabiles quam affectus eius et motus cordis eius.
