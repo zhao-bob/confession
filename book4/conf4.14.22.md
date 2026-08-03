@@ -19,4 +19,6 @@
 
 > non enim sicut equus bonus amatur ab eo qui nollet hoc esse etiamsi posset. hoc et de histrione dicendum est, qui naturae nostrae socius est. 
 
+因为不能认为，就像良马被一个人爱，即便那人能成为，也不愿成为那匹马那样。对演员而言也是这样，他是我们本性的共享者。
+
 > ergone amo in homine quod odi esse, cum sim homo? grande profundum est ipse homo, cuius etiam capillos tu, domine, numeratos habes et non minuuntur in te: et tamen capilli eius magis numerabiles quam affectus eius et motus cordis eius.
