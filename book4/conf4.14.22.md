@@ -23,4 +23,4 @@
 
 > ergone amo in homine quod odi esse, cum sim homo? grande profundum est ipse homo, cuius etiam capillos tu, domine, numeratos habes et non minuuntur in te: et tamen capilli eius magis numerabiles quam affectus eius et motus cordis eius.
 
-既然我是人，难道我在人身上爱的，是我憎恨要成为的吗？
+既然我是人，难道我在人身上爱的，是我憎恨要成为的吗？人自身就是巨大的深渊，而主啊，甚至连他的头发，祢都数过，也不会在祢里面失落。尽管如此，比起他的感情和他内心的活动，他的头发更容易数算。
