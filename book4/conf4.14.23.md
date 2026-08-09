@@ -7,6 +7,8 @@
 
 > et unde scio et unde certus confiteor tibi quod illum in amore laudantium magis amaveram quam in rebus ipsis de quibus laudabatur? 
 
+而我从何处知道，又从何处确然地向祢忏悔：我曾爱他，更多是在赞美者的爱中，而非在他被赞美的事情本身中？
+
 > quia si non laudatum vituperarent eum idem ipsi et vituperando atque spernendo ea ipsa narrarent, non accenderer in eo et non excitarer, et certe res non aliae forent nec homo ipse alius, sed tantummodo alius affectus narrantium. 
 
 > ecce ubi iacet anima infirma nondum haerens soliditati veritatis: sicut aurae linguarum flaverint a pectoribus opinantium, ita fertur et vertitur, torquetur ac retorquetur, et obnubilatur ei lumen et non cernitur veritas, et ecce est ante nos. 
