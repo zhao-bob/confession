@@ -11,6 +11,8 @@
 
 > quia si non laudatum vituperarent eum idem ipsi et vituperando atque spernendo ea ipsa narrarent, non accenderer in eo et non excitarer, et certe res non aliae forent nec homo ipse alius, sed tantummodo alius affectus narrantium. 
 
+因为假使他不被赞美，相同的这些人却责备他，并以批评和轻蔑讲述他那些相同的事情，我就不会在他身上被点燃，也不会被激起。而无疑，既不是那些事情成了别的，也不是那人本身成了别的，而仅仅是讲述者的情感成了别的。
+
 > ecce ubi iacet anima infirma nondum haerens soliditati veritatis: sicut aurae linguarum flaverint a pectoribus opinantium, ita fertur et vertitur, torquetur ac retorquetur, et obnubilatur ei lumen et non cernitur veritas, et ecce est ante nos. 
 
 > et magnum quiddam mihi erat, si sermo meus et studia mea illi viro innotescerent. quae si probaret, flagrarem magis; si autem improbaret, sauciaretur cor vanum et inane soliditatis tuae. 
