@@ -15,6 +15,8 @@
 
 > ecce ubi iacet anima infirma nondum haerens soliditati veritatis: sicut aurae linguarum flaverint a pectoribus opinantium, ita fertur et vertitur, torquetur ac retorquetur, et obnubilatur ei lumen et non cernitur veritas, et ecce est ante nos. 
 
+看哪，软弱的灵魂，在尚未附着于真理的稳固之时，躺在哪里啊！正如言语的气息从臆测者的胸中吹出，灵魂就这样被带走、被转向、被扭曲又被反扭过来。那光对它被遮蔽，真理也不被辨认。而看哪，它就在我们面前。
+
 > et magnum quiddam mihi erat, si sermo meus et studia mea illi viro innotescerent. quae si probaret, flagrarem magis; si autem improbaret, sauciaretur cor vanum et inane soliditatis tuae. 
 
 > et tamen pulchrum illud atque aptum, unde ad eum scripseram, libenter animo versabam ob os contemplationis meae et nullo conlaudatore mirabar.
