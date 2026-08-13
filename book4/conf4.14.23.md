@@ -22,3 +22,5 @@
 而这对我是一件大事：假如我的言辞和我的钻研为那位先生所知。如果他赞许，我就更加火热；但如果他反对，空虚而匮乏祢的稳固的心，就会被刺伤。
 
 > et tamen pulchrum illud atque aptum, unde ad eum scripseram, libenter animo versabam ob os contemplationis meae et nullo conlaudatore mirabar.
+
+然而，那美与适宜---我曾借此题献给他---我乐意在灵魂中，在我沉思的面前反复玩味，就算没有喝彩者一起，我也自叹其妙。
