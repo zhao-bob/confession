@@ -7,6 +7,8 @@
 
 > et converti me ad animi naturam, et non me sinebat falsa opinio quam de spiritalibus habebam verum cernere. 
 
+而我转向灵魂的本性，而我对属灵之物怀有的错谬观点却不允许我去分辨真理。
+
 > et inruebat in oculos ipsa vis veri, et avertebam palpitantem mentem ab incorporea re ad liniamenta et colores et tumentes magnitudines et, quia non poteram ea videre in animo, putabam me non posse videre animum. 
 
 > et cum in virtute pacem amarem, in vitiositate autem odissem discordiam, in illa unitatem, in ista quandam divisionem notabam, inque illa unitate mens rationalis et natura veritatis ac summi boni mihi esse videbatur, in ista vero divisione inrationalis vitae nescioquam substantiam et naturam summi mali, quae non solum esset substantia sed omnino vita esset, et tamen abs te non esset, deus meus, ex quo sunt omnia, miser opinabar. 
